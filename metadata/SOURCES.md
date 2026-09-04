@@ -27,6 +27,7 @@ The initial PG 17 batch uses normalized passage files derived from [OpenGreekAnd
 | Origen | Notes on Judges | 17 | `tlg2042.tlg072` | 2 | 136 |
 | Origen | Notes on Leviticus (Fragments from Catenae) | 17 | `tlg2042.tlg068` | 8 | 475 |
 | Origen | Notes on Numbers | 17 | `tlg2042.tlg069` | 8 | 209 |
+| Origen | Notes on Deuteronomy (Fragments from Catenae) | 17 | `tlg2042.tlg070` | 22 | 1,848 |
 
 Required attribution is preserved to OpenGreekAndLatin/First1KGreek and the Open Greek Corpus aggregation/normalization work under CC BY-SA 4.0.
 
