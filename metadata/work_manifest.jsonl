@@ -2,8 +2,8 @@
 {"work_id":"ogc002622","author":"Origen","title":"Notes on Exodus","cts_id":"tlg2042.tlg067","pg_volumes":[17],"status":"complete","source_status":"ready","corpus_tokens":246,"priority":1}
 {"work_id":"ogc002624","author":"Origen","title":"Notes on Joshua (Fragments from Catenae)","cts_id":"tlg2042.tlg071","pg_volumes":[17],"status":"complete","source_status":"ready","corpus_tokens":171,"priority":1}
 {"work_id":"ogc002625","author":"Origen","title":"Notes on Judges","cts_id":"tlg2042.tlg072","pg_volumes":[17],"status":"complete","source_status":"ready","corpus_tokens":136,"priority":1}
-{"work_id":"ogc002626","author":"Origen","title":"Notes on Leviticus (Fragments from Catenae)","cts_id":"tlg2042.tlg068","pg_volumes":[17],"status":"ready","source_status":"ready","corpus_tokens":475,"priority":1}
-{"work_id":"ogc002627","author":"Origen","title":"Notes on Numbers","cts_id":"tlg2042.tlg069","pg_volumes":[17],"status":"ready","source_status":"ready","corpus_tokens":209,"priority":1}
+{"work_id":"ogc002626","author":"Origen","title":"Notes on Leviticus (Fragments from Catenae)","cts_id":"tlg2042.tlg068","pg_volumes":[17],"status":"complete","source_status":"ready","corpus_tokens":475,"priority":1}
+{"work_id":"ogc002627","author":"Origen","title":"Notes on Numbers","cts_id":"tlg2042.tlg069","pg_volumes":[17],"status":"complete","source_status":"ready","corpus_tokens":209,"priority":1}
 {"work_id":"ogc002621","author":"Origen","title":"Notes on Deuteronomy (Fragments from Catenae)","cts_id":"tlg2042.tlg070","pg_volumes":[17],"status":"ready","source_status":"ready","corpus_tokens":1848,"priority":2}
 {"work_id":"ogc002639","author":"Origen","title":"Fragments from the Commentaries on Ezekiel","cts_id":"tlg2042.tlg061","pg_volumes":[13],"status":"ready","source_status":"ready","corpus_tokens":328,"priority":1}
 {"work_id":"ogc002662","author":"Origen","title":"Selections on Joshua (Fragments from Catenae)","cts_id":"tlg2042.tlg054","pg_volumes":[12],"status":"ready","source_status":"ready","corpus_tokens":928,"priority":2}
