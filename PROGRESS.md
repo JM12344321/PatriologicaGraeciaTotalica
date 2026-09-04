@@ -7,15 +7,15 @@ This is an early, deliberately small checkpoint. Counts describe complete transl
 | Measure | Count |
 |---|---:|
 | PG volumes represented | 5 |
-| Works inventoried | 14 |
-| Works complete | 11 |
+| Works inventoried | 15 |
+| Works complete | 12 |
 | Works partial | 0 |
-| Approximate Greek words/tokens translated | 6,574 |
-| Word-for-Word files complete | 11 |
-| Thought-for-Thought files complete | 11 |
+| Approximate Greek words/tokens translated | 7,988 |
+| Word-for-Word files complete | 12 |
+| Thought-for-Thought files complete | 12 |
 | Latin-only works logged | 0 |
 | Ready works awaiting translation | 3 |
-| Works with open QA flags | 11 |
+| Works with open QA flags | 12 |
 
 ## Newly completed
 
@@ -30,5 +30,6 @@ This is an early, deliberately small checkpoint. Counts describe complete transl
 - PG 17: Origen, *Notes on Numbers*
 - PG 17: Origen, *Notes on Deuteronomy (Fragments from Catenae)*
 - PG 158: Anonymous, *Narrative on the Life of Mohammed* (hostile polemic; source-complete OCR translation)
+- PG 158: Hilarion the Monk, *Dialectical Discourse on the Mystical Bread of the Greeks and the Unleavened Bread of the Latins* (source-complete OCR translation)
 
 The count of Greek words is an inexpensive approximation based on the Open Greek Corpus token totals.

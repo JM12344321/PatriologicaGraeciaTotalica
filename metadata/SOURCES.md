@@ -39,3 +39,4 @@ The following works are translated from Open Greek Corpus’s established `cgpg`
 |---|---|---|---|---:|---:|
 | Anonymous | Narrative on the Life of Mohammed | 158.574–575 | `ogc003678` | 2 | 1,214 |
 | Pseudo-Justin | Oration to the Greeks | 6.229–240 | `ogc003770` | 6 | 1,047 |
+| Hilarion the Monk | Dialectical Discourse on the Mystical Bread of the Greeks and the Unleavened Bread of the Latins | 158.977–984 | `ogc003692` | 4 | 1,414 |
