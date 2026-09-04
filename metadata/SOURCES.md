@@ -21,6 +21,7 @@ The initial PG 17 batch uses normalized passage files derived from [OpenGreekAnd
 |---|---|---:|---|---:|---:|
 | Origen | Selections on Judges (Fragments from Catenae) | 12 | `tlg2042.tlg055` | 7 | 265 |
 | Origen | Selections on Joshua (Fragments from Catenae) | 12 | `tlg2042.tlg054` | 16 | 928 |
+| Origen | Selections on Leviticus (Fragments from Catenae) | 12 | `tlg2042.tlg051` | 23 | 1,469 |
 | Origen | Fragments from the Commentary on Ezekiel | 13 | `tlg2042.tlg061` | 4 | 328 |
 | Origen | Notes on Genesis | 17 | `tlg2042.tlg066` | 7 | 635 |
 | Origen | Notes on Exodus | 17 | `tlg2042.tlg067` | 4 | 246 |
