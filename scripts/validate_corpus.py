@@ -105,7 +105,7 @@ def main() -> int:
     status_by_id = {row.get("work_id"): row for row in statuses}
     for source in sources:
         work_id = source["work_id"]
-        cts_id = source["cts_id"]
+        source_identifier = source.get("cts_id") or source["source_work_identifier"]
         expected_loci = source["source_loci"]
         if source.get("segment_count") != len(expected_loci):
             errors.append(f"{work_id}: segment_count disagrees with source_loci")
@@ -115,9 +115,12 @@ def main() -> int:
 
         found: dict[str, Path] = {}
         for mode in MODES:
-            matches = [path for path in files_by_mode[mode] if cts_id in texts.get(path, "")]
+            matches = [path for path in files_by_mode[mode] if source_identifier in texts.get(path, "")]
             if len(matches) != 1:
-                errors.append(f"{work_id}: expected one {mode} file containing {cts_id}, found {len(matches)}")
+                errors.append(
+                    f"{work_id}: expected one {mode} file containing "
+                    f"{source_identifier}, found {len(matches)}"
+                )
                 continue
             path = matches[0]
             found[mode] = path

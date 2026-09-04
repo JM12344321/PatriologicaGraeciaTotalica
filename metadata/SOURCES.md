@@ -29,3 +29,11 @@ The initial PG 17 batch uses normalized passage files derived from [OpenGreekAnd
 | Origen | Notes on Numbers | 17 | `tlg2042.tlg069` | 8 | 209 |
 
 Required attribution is preserved to OpenGreekAndLatin/First1KGreek and the Open Greek Corpus aggregation/normalization work under CC BY-SA 4.0.
+
+## Patrologia Graeca OCR source family
+
+The anonymous *Narrative on the Life of Mohammed* is translated from Open Greek Corpus’s established `cgpg` passage file, derived from [calfa-co/Patrologia-Graeca](https://github.com/calfa-co/Patrologia-Graeca). It is an auto-corrected CC BY 4.0 OCR witness to the public-domain Migne text and retains visible defects. Its source records supply PG 158, columns 574–575, so those markers are preserved.
+
+| Author | Work | PG columns | OGC identifier | Records | Corpus tokens |
+|---|---|---|---|---:|---:|
+| Anonymous | Narrative on the Life of Mohammed | 158.574–575 | `ogc003678` | 2 | 1,214 |
