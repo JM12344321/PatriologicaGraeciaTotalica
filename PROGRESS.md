@@ -6,19 +6,20 @@ This is an early, deliberately small checkpoint. Counts describe complete transl
 
 | Measure | Count |
 |---|---:|
-| PG volumes represented | 4 |
-| Works inventoried | 13 |
-| Works complete | 10 |
+| PG volumes represented | 5 |
+| Works inventoried | 14 |
+| Works complete | 11 |
 | Works partial | 0 |
-| Approximate Greek words/tokens translated | 5,527 |
-| Word-for-Word files complete | 10 |
-| Thought-for-Thought files complete | 10 |
+| Approximate Greek words/tokens translated | 6,574 |
+| Word-for-Word files complete | 11 |
+| Thought-for-Thought files complete | 11 |
 | Latin-only works logged | 0 |
 | Ready works awaiting translation | 3 |
-| Works with open QA flags | 10 |
+| Works with open QA flags | 11 |
 
 ## Newly completed
 
+- PG 6: Pseudo-Justin, *Oration to the Greeks* (pseudonymous attribution; source-complete OCR translation)
 - PG 12: Origen, *Selections on Judges (Fragments from Catenae)*
 - PG 13: Origen, *Fragments from the Commentary on Ezekiel*
 - PG 17: Origen, *Notes on Genesis*

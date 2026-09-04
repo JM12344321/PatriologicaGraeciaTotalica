@@ -11,3 +11,4 @@
 {"work_id":"ogc002664","author":"Origen","title":"Selections on Leviticus (Fragments from Catenae)","cts_id":"tlg2042.tlg051","pg_volumes":[12],"status":"ready","source_status":"ready","corpus_tokens":1469,"priority":2}
 {"work_id":"ogc002665","author":"Origen","title":"Selections on Numbers","cts_id":"tlg2042.tlg052","pg_volumes":[12],"status":"ready","source_status":"ready","corpus_tokens":1687,"priority":2}
 {"work_id":"ogc003678","author":"Anonymous","title":"Narrative on the Life of Mohammed","cts_id":null,"source_work_identifier":"anonymus-de-vita-mohammedis.narratio-de-vita-mohammedis","pg_volumes":[158],"status":"complete","source_status":"ready_ocr","corpus_tokens":1214,"priority":1}
+{"work_id":"ogc003770","author":"Pseudo-Justin","title":"Oration to the Greeks","cts_id":"tlg0646.tlg001","source_work_identifier":"pseudo-justinus-martyr.oratio-ad-gentiles","pg_volumes":[6],"status":"complete","source_status":"ready_ocr","corpus_tokens":1047,"priority":1}

@@ -33,8 +33,9 @@ Required attribution is preserved to OpenGreekAndLatin/First1KGreek and the Open
 
 ## Patrologia Graeca OCR source family
 
-The anonymous *Narrative on the Life of Mohammed* is translated from Open Greek Corpus’s established `cgpg` passage file, derived from [calfa-co/Patrologia-Graeca](https://github.com/calfa-co/Patrologia-Graeca). It is an auto-corrected CC BY 4.0 OCR witness to the public-domain Migne text and retains visible defects. Its source records supply PG 158, columns 574–575, so those markers are preserved.
+The following works are translated from Open Greek Corpus’s established `cgpg` passage files, derived from [calfa-co/Patrologia-Graeca](https://github.com/calfa-co/Patrologia-Graeca). They are auto-corrected CC BY 4.0 OCR witnesses to the public-domain Migne text and retain visible defects.
 
 | Author | Work | PG columns | OGC identifier | Records | Corpus tokens |
 |---|---|---|---|---:|---:|
 | Anonymous | Narrative on the Life of Mohammed | 158.574–575 | `ogc003678` | 2 | 1,214 |
+| Pseudo-Justin | Oration to the Greeks | 6.229–240 | `ogc003770` | 6 | 1,047 |
