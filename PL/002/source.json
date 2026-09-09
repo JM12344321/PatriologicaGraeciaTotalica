@@ -1,0 +1,17 @@
+{
+  "series": "PL",
+  "volume": 2,
+  "source_url": "https://archive.org/download/patrologia-latina_1-221/Patrologia_Latina_1-221.zip",
+  "source_archive_md5": "3a8c0e7a7c6068b057b66a08ac6b54df",
+  "archive_member": "Patrologia_001_i.htm",
+  "source_segment_sha256": "6d6ad72881642fea71255970b81a6ec763cb091351af742729e70616a100dff6",
+  "output": "PL\\002\\PL_002_lat.txt",
+  "text_sha256": "97bfcd5c68ab93020183aec87acddae7aa546cde5e59403fc44a56b6db5aeab0",
+  "bytes": 4309298,
+  "words": 626322,
+  "column_markers": 13771,
+  "first_column": "0009",
+  "last_column": "1391",
+  "chunks": 148,
+  "quality": "Public HTML transcription. Not independently proofread; inherited omissions and errors remain possible. Foreign-script passages explicitly marked as omitted."
+}
