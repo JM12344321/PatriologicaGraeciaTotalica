@@ -1,17 +1,7 @@
 # Patrologia Latina — English translation
 
-English translations of the supplied Patrologia Latina collection, volumes 1–221. Translation is in progress. The per-volume table in `progress.tsv` records actual coverage; a volume is complete only when all its source chunks have been translated and reviewed.
+Completed volumes are published as one Markdown file per volume, named `PL_NNN_English.md`. A volume appears only after every source chunk has been translated and independently source-reviewed by GPT-5.6 Sol. The internal chunk boundaries are removed from the reading text when the volume is assembled.
 
-Numbered volume directories contain numbered sections in reading order. Each section identifies its source chunk and review status. Source column references and notes are retained. Read the numbered files consecutively; source chunk boundaries sometimes fall within a sentence.
+The work uses only the supplied local primary sources. AI translation and an independent AI source review are recorded without claiming human certification. Foreign-script passages were recovered from the supplied local files where available; PL 115 was checked against its supplied XML. Material uncertainty remains marked in the text, and `progress.tsv` records the primary-source hashes.
 
-## Editorial method
-
-GPT-5.6 Sol translates directly from the supplied Latin and a different agent checks the English against that source. Astra coordinates, resolves flagged difficulties, and publishes reviewed sections. The aim is faithful, readable scholarly English, including prefaces, notes, apparatus, and indexes. These are AI translations with AI review, not a claim of independent human scholarly certification.
-
-Obvious transcription errors may be corrected contextually. Material conjectures and unrecoverable text are identified. Foreign-script passages stripped from the prepared text are recovered from the supplied local archive and translated. Recovery is checked against the prepared text before use. Earlier sections containing explicit non-Latin omission markers are being updated; `restored_source_reviewed_chunks` in the progress table distinguishes this work. A volume is complete only after every section includes the recovered source. Citations are preserved as transmitted rather than silently modernized.
-
-## Supplied sources
-
-Only the user's local `D:\Codex\Sourcetext` collection is used. The source inventory, hashes, and provenance were supplied with that collection. Its primary PL text derives from the supplied HTML archive; volume 115 uses the supplied replacement OCR. No new source editions have been sought. `progress.tsv` retains the source-file hash for each volume.
-
-Publication proceeds in reviewed sections. A section marked as having unresolved readings is usable with those limitations, but must not be mistaken for recovery of missing source text.
+See [translation progress](progress.tsv) for local review progress and published-volume coverage. Source notes, useful column references, recovered foreign-language passages, and material textual uncertainties are retained.
