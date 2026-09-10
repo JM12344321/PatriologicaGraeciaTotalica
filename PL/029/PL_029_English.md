@@ -34723,7 +34723,7 @@ Verse 2. *David*: (Not found in the manuscript.)—Ibid. *of the Lord*: *of God*
 
 ## Chapter VIII
 
-Verse 3. *Adar-ezer*: *Adezer*.—Ibid. *the Euphrates*: *Euphrates*.—5. *from Syria*: *Syria*.—Ibid. *Adarezer*: *Adedezer*.—6. *and the Lord preserved*: *the Lord preserved*.—7. *golden weapons, which*, etc.: *golden weapons and collars, which*, etc.—Ibid. *Adar-ezer*: [Col. 0930D] *Adadezer*.—8. *Adar-ezer*: *Adadezer*.—Ibid. *and the bronze sea, and the pillars, and the altar*: (Not found in the manuscript.)—9. *Adar-ezer*: *Adadezer*.—10. *Adarezer*: *Adadezer*.—Ibid. *Adar-ezer*: *Adadezer*.—Ibid. *gold vessels and silver vessels*: *silver vessels and gold vessels*.—12. *Adar-ezer*: *Adadezer*.—13. *eighteen*: *twelve*.—Ibid. *twenty-three thousand*: *twenty thousand*.—16. *Ahilud*: *Ahiud*.—17. *Achimelech*: *Abimelech*.
+Verse 3. *Adar-ezer*: *Adezer*.—Ibid. *Ephraten*: *Euphraten* (both referring to the Euphrates; variant spelling).—5. *from Syria*: *Syria*.—Ibid. *Adarezer*: *Adedezer*.—6. *and the Lord preserved*: *the Lord preserved*.—7. *golden weapons, which*, etc.: *golden weapons and collars, which*, etc.—Ibid. *Adar-ezer*: [Col. 0930D] *Adadezer*.—8. *Adar-ezer*: *Adadezer*.—Ibid. *and the bronze sea, and the pillars, and the altar*: (Not found in the manuscript.)—9. *Adar-ezer*: *Adadezer*.—10. *Adarezer*: *Adadezer*.—Ibid. *Adar-ezer*: *Adadezer*.—Ibid. *gold vessels and silver vessels*: *silver vessels and gold vessels*.—12. *Adar-ezer*: *Adadezer*.—13. *eighteen*: *twelve*.—Ibid. *twenty-three thousand*: *twenty thousand*.—16. *Ahilud*: *Ahiud*.—17. *Achimelech*: *Abimelech*.
 
 ## Chapter IX
 
