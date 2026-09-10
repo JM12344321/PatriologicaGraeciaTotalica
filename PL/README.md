@@ -8,7 +8,7 @@ Numbered volume directories contain numbered sections in reading order. Each sec
 
 GPT-5.6 Sol translates directly from the supplied Latin and a different agent checks the English against that source. Astra coordinates, resolves flagged difficulties, and publishes reviewed sections. The aim is faithful, readable scholarly English, including prefaces, notes, apparatus, and indexes. These are AI translations with AI review, not a claim of independent human scholarly certification.
 
-Obvious transcription errors may be corrected contextually. Material conjectures and unrecoverable text are identified. Existing source omissions, including passages marked `[textus non Latinus omissus]`, remain explicit; missing text is not invented. Citations are preserved as transmitted rather than silently modernized.
+Obvious transcription errors may be corrected contextually. Material conjectures and unrecoverable text are identified. Foreign-script passages stripped from the prepared text are recovered from the supplied local archive and translated. Recovery is checked against the prepared text before use. Earlier sections containing explicit non-Latin omission markers are being updated; `restored_source_reviewed_chunks` in the progress table distinguishes this work. A volume is complete only after every section includes the recovered source. Citations are preserved as transmitted rather than silently modernized.
 
 ## Supplied sources
 
