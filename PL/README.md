@@ -1,6 +1,6 @@
 # Patrologia Latina — English translation
 
-Completed volumes are published as one Markdown file per volume, named `PL_NNN_English.md`. A volume appears only after every source chunk has been translated and independently source-reviewed. Earlier chunks were produced by GPT-5.6 Sol; routine translation and review now use GPT-5.6 Terra. The internal chunk boundaries are removed from the reading text when the volume is assembled.
+Completed volumes are published as one Markdown file per volume, named `PL_NNN_English.md`. A volume appears only after every source chunk has been translated and independently source-reviewed. Drafts and corrections use GPT-5.6 Luna, Terra, and Sol, with an independent Terra or Sol source review. Actual model provenance is recorded for each internal section. The internal chunk boundaries are removed from the reading text when the volume is assembled.
 
 The work uses only the supplied local primary sources. AI translation and an independent AI source review are recorded without claiming human certification. Foreign-script passages were recovered from the supplied local files where available; PL 115 was checked against its supplied XML. Material uncertainty remains marked in the text, and `progress.tsv` records the primary-source hashes.
 
