@@ -38515,29 +38515,29 @@ The duty of ministering impels me, a sinner, to offer the saving sacrifice for t
 
 Amid these things, almighty God, I implore the balance of your mercy. I dread the day of your vengeance, which an accusing conscience makes me fear. I ask you not to judge me, unworthy as I am, without mercy, since you do not exclude me from the time of repentance.
 
-Suspend, I beg you, through the intercession of these and all the saints’ merits, the axe until the cultivator of the vineyard brings a basket of manure to the root of the unfruitful tree. Spare me, O most merciful Lord, a penitent, who mercifully recalled David to forgiveness after his fall; O Merciful One, who regarded the tears of Peter as he wept bitterly; who enlightened the thief, guilty of so great a crime on the gallows of the cross, with divine grace. To him confession immediately obtained the Son of God’s favor, faith its reward, punishment forgiveness, and lamentation everlasting joys: while the confessor remained on the cross, he became the possessor of Paradise because of the cross. But since your words of forgiveness require your mercy, and the works of an unworthy priest do not commend them, at least receive the prayers of those standing here, so that through their prayers you may grant forgiveness to me, and through their merits may the sacrifices confer upon us the healing of our wounds. Since, however, O Almighty, you became the saving sacrifice for the sins of all, be present to us as justification for our offenses, Jesus Christ, Savior of the world. You who, with the Father and the Holy Spirit, live and reign, etc. [Col. 1319A]
+Suspend, I beg you, through the intercession of these and all the saints’ merits, the axe until the cultivator of the vineyard brings a basket of manure to the root of the unfruitful tree. Spare me, O most merciful Lord, a penitent, [Col. 1319A] who mercifully recalled David to forgiveness after his fall; O Merciful One, who regarded the tears of Peter as he wept bitterly; who enlightened the thief, guilty of so great a crime on the gallows of the cross, with divine grace. To him confession immediately obtained the Son of God’s favor, faith its reward, punishment forgiveness, and lamentation everlasting joys: while the confessor remained on the cross, he became the possessor of Paradise because of the cross. But since your words of forgiveness require your mercy, and the works of an unworthy priest do not commend them, at least receive the prayers of those standing here, so that through their prayers you may grant forgiveness to me, and through their merits may the sacrifices confer upon us the healing of our wounds. Since, however, O Almighty, you became the saving sacrifice for the sins of all, be present to us as justification for our offenses, Jesus Christ, Savior of the world. You who, with the Father and the Holy Spirit, [Col. 1319B] live and reign, etc.
 
 ### Prayer for oneself
 
 Save me, O Lord, King of eternal glory, who are able to save; and grant me the ability both to do and to complete what pleases you and is beneficial to me. O holy Lord, almighty Father and God, grant me help in tribulation, consolation in persecution, and strength at every time of temptation.
 
-O holy, most devout Lord and Father, grant me forgiveness for past offenses, correction in the present, and protection for the future, because I cannot abandon evil or do good unless your great mercy comes to my aid. Grant that I may deserve to know, fear, and love you with my whole heart, Lord Jesus Christ, Redeemer of all, who are the refuge of the poor and the consoler of the afflicted. Through your great mercy, be my consolation in all my distress and tribulations, because I have hope in no one but you; for you are my refuge and strength in my tribulations, which have found me exceedingly. Therefore I cry out to you with my whole heart, that you may deign to hear me, and that by your merciful kindness I may deserve to obtain all these things for which I, unworthy as I am, pray. And whatever it is that my unhappiness does not know how, or does not dare, to ask of you, grant that thing in accordance with your mercy and majesty, because you are the consolation and protection of my life at all times, etc.
+O holy, most devout Lord and Father, grant me forgiveness for past offenses, correction in the present, and protection for the future, because I cannot abandon evil or do good unless your great mercy comes to my aid. Grant that I may deserve to know, fear, and love you with my whole heart, Lord Jesus Christ, Redeemer of all, who are the refuge of the poor and [Col. 1319C] the consoler of the afflicted. Through your great mercy, be my consolation in all my distress and tribulations, because I have hope in no one but you; for you are my refuge and strength in my tribulations, which have found me exceedingly. Therefore I cry out to you with my whole heart, that you may deign to hear me, and that by your merciful kindness I may deserve to obtain all these things for which I, unworthy as I am, pray. And whatever it is that my unhappiness does not know how, or does not dare, to ask of you, grant that thing in accordance with your mercy and majesty, because you are the consolation and protection of my life at all times, etc.
 
 ### Prayer in any tribulation
 
-O God, who do not despise the groaning of the contrite or spurn the devotion of the deserving, attend to our prayers, which in our tribulation we presume to pour out while imploring your mercy. Mercifully deign to receive them, and grant that whatever diabolical and human adversities contrive against us you may reduce to nothing and crush by the counsel of your mercy, so that, unharmed by any adversities but delivered from every tribulation and distress, we may joyfully give thanks to you in your holy Church through Christ. Through him, O most high God, we ask you to heed these prayers and, with propitious favor, look upon this prayer of ours, which we offer to you for deliverance and release from the pressure of our weakness.
+O God, who do not despise the groaning of the contrite or spurn the devotion of the deserving, attend to our prayers, [Col. 1319D] which in our tribulation we presume to pour out while imploring your mercy. Mercifully deign to receive them, and grant that whatever diabolical and human adversities contrive against us you may reduce to nothing and crush by the counsel of your mercy, so that, unharmed by any adversities but delivered from every tribulation and distress, we may joyfully give thanks to you in your holy Church through Christ. Through him, O most high God, we ask you to heed these prayers and, with propitious favor, look upon this prayer of ours, which we offer to you for deliverance and release from the pressure of our weakness.
 
-Now, Lord, look upon us with a gracious countenance and, in your singular mercy, remove from us what the savagery of evils promises, what the perversity of enemies inflicts, what the opposition of the wicked binds through their counsels, what threatens from judgment, what hangs upon a sentence, what conspiracy contrives, what accusation shatters, what our own iniquities deserve, what binds us through the fabrications of others, what casts us down through pressures, what weighs upon us through torments, and what constrains us through distresses. We ask, Lord, that you not exercise your justice upon our injustices, but rather manifest your mercy in our iniquities. Do not cast us down in persecution; do not destroy us through intolerance. Discipline us through tribulation, raise us up through mercy, and guide us through compassion, so that, protected by you from the arrows of our enemies and freed from our present tribulation, we may praise you, the living Lord in the Trinity, with harmonious voice. You who live and reign with your only-begotten Son and the holy Spirit, the Paraclete, through infinite ages of ages. Amen. [Col. 1319B]
+Now, Lord, look upon us with a gracious countenance and, in your singular mercy, remove from us what the savagery of evils promises, [Col. 1320A] what the perversity of enemies inflicts, what the opposition of the wicked binds through their counsels, what threatens from judgment, what hangs upon a sentence, what conspiracy contrives, what accusation shatters, what our own iniquities deserve, what binds us through the fabrications of others, what casts us down through pressures, what weighs upon us through torments, and what constrains us through distresses. We ask, Lord, that you not exercise your justice upon our injustices, but rather manifest your mercy in our iniquities. Do not cast us down in persecution; do not destroy us through intolerance. Discipline us through tribulation, raise us up through mercy, and guide us through compassion, so that, protected by you from the arrows of our enemies and freed from our present tribulation, we may praise you, the living Lord in the Trinity, with harmonious voice. [Col. 1320B] You who live and reign with your only-begotten Son and the holy Spirit, the Paraclete, through infinite ages of ages. Amen.
 
 ### Prayer of the shepherd, to be said for himself and for those entrusted to him
 
-Forgive, O almighty Lord God, whatever through the intemperance of a biting tongue the heedless rebuke of our mouth has wounded those entrusted to us; spare whatever we have said short of the perfection of goodness; forgive whatever we have expressed incongruously or with insufficient moderation. Let heedless presumption not punish me, but let the compassionate mercy of your pity absolve me as I acknowledge my iniquities. And because I have no confidence elsewhere except in your mercy, arm both my mouth with the proclamation of truth and sanctify my work with fuller abundance, so that you may save one who is unworthy and sanctify, in your mercy, the flock entrusted to me.
+Forgive, O almighty Lord God, whatever through the intemperance of a biting tongue the heedless rebuke of our mouth has wounded those entrusted to us; spare whatever we have said short of the perfection of goodness; forgive whatever we have expressed incongruously or with insufficient moderation. Let heedless presumption not punish me, but let the compassionate mercy of your pity absolve me as I acknowledge my iniquities. And because I have no confidence elsewhere except in your mercy, arm both my mouth with the proclamation of truth and sanctify my work with fuller abundance, so that you may save one who is unworthy and sanctify, in your mercy, the flock entrusted to me. [Col. 1320C]
 
-Heal whatever in them has been corrupted, and cure whatever in me you see to be defective. If, through the fault of my lukewarmness or negligence, they have contracted any offenses, mercifully forgive them. If, whether unknowingly or knowingly, they have fallen into crime, and if they have plunged into ruin because of the stumbling block of my example, rescue them from it by the hand of your mercy, and do not repay wretched me with the vengeance due for such faults. Yet for those toward whom I seemed to apply the judgment of rebuke, may the rebuke contribute to salvation. And may this interceding prayer call those entrusted to me back from error, so that they may not suffer the infernal torments, for which we, being mortal, have imposed the laws of penance. Thus, sparing the disadvantages of both parties, grant forgiveness to their iniquities and wash away my offense, contracted through the burdens of governing. [Col. 1319C]
+Heal whatever in them has been corrupted, and cure whatever in me you see to be defective. If, through the fault of my lukewarmness or negligence, they have contracted any offenses, mercifully forgive them. If, whether unknowingly or knowingly, they have fallen into crime, and if they have plunged into ruin because of the stumbling block of my example, rescue them from it by the hand of your mercy, and do not repay wretched me with the vengeance due for such faults. Yet for those toward whom I seemed to apply the judgment of rebuke, may the rebuke contribute to salvation. And may this interceding prayer call those entrusted to me back from error, so that they may not suffer the infernal torments, for which we, being mortal, have imposed the laws of penance. Thus, sparing the disadvantages of both parties, grant forgiveness to their iniquities and wash away my offense, contracted through the burdens of governing. [Col. 1320D]
 
 Give ear, O God, to our sacrifices, and inscribe me and those entrusted to me in your books, so that, together with the flock committed to my care, I may be cleansed from every crime and deserve to come to you in peace. Make peaceful, O God, the dwelling place of our hearts by expelling carnal vices. And because I strive to exercise the highest virtues among those entrusted to me, may I, with the afflictions of minds and bodies brought to peace, deserve to be crowned peacefully with the angels when you judge.
 
-Therefore, we ask you, merciful God, make us, as we gaze upon you, burn in your presence through the gift of your grace, so that zeal for your house may consume us. And so temper us, as we govern those entrusted to us through the vigor of the Holy Spirit, that they may gain benefit from the discipline of our governance, that their hardness may be broken, and that their life may be sanctified. [Col. 1320A]
+Therefore, we ask you, merciful God, make us, as we gaze upon you, burn in your presence through the gift of your grace, so that zeal for your house may consume us. And so temper us, as we govern those entrusted to us through the vigor of the Holy Spirit, that they may gain benefit from the discipline of our governance, that their hardness may be broken, and that their life may be sanctified. [Col. 1321A]
 
 Receive, Lord, the offerings of our vows, and through them grant that whatever correction we bestow upon those entrusted to us, whether by word or by merit, may not lead to our discord, but may, to our joy, have advanced both them and us toward the joy of everlasting sweetness. Wash us, almighty God, from both another’s offense and our own, so that in both we may receive the effectiveness of spiritual grace and pray to your name with greater confidence. Through, etc.
 
@@ -38547,7 +38547,7 @@ May the Lord kindle and fill our hearts with the fragrance of your heavenly insp
 
 ### Blessing of the same
 
-In the name of our Lord Jesus Christ, may this incense be blessed and become acceptable as a fragrant odor.
+In the name of our Lord Jesus Christ, may this incense be blessed [Col. 1321B] and become acceptable as a fragrant odor.
 
 Then, as the deacon bows, he gives him God’s blessing, saying:
 
@@ -38557,7 +38557,7 @@ The deacon, taking up or kissing the Gospel, says:
 
 Give me, Lord, a right and well-sounding word in my mouth, so that my words may please you and all who hear them, for the sake of your holy name, unto eternal life. Amen.
 
-After the Gospel has been read, the deacon says:
+[Col. 1321C] After the Gospel has been read, the deacon says:
 
 Through these words of your holy Gospel, Lord, forgive me all my sins.
 
@@ -38575,7 +38575,7 @@ Let my prayer be directed like incense in your presence, O Lord.
 
 Then the priest begins the Creed, that is:
 
-I believe in one God, the almighty Father, maker of heaven and earth, of all things visible and invisible. And in one Lord Jesus Christ, the only-begotten Son of God, born from the Father before all ages: God from God, light from light, true God from true God; begotten, not made, consubstantial with the Father, through whom all things were made. For us human beings and for our salvation he descended from heaven. And he was incarnate from the Holy Spirit and the Virgin Mary, and became man. He was also crucified for us under Pontius Pilate; he suffered and was buried. And he rose again on the third day according to the Scriptures, and ascended into heaven; he sits at the right hand of the Father. And he will come again with glory to judge the living and the dead, and his kingdom will have no end. And in the Holy Spirit, the Lord and giver of life, who proceeds from the Father and the Son; who with the Father and the Son is worshiped together and glorified together; who spoke through the prophets. And in one holy, catholic, and apostolic Church. I confess one baptism for the forgiveness of sins, and I await the resurrection of the dead and the life of the age to come. Amen. [Col. 1320B]
+I believe in one God, the almighty Father, maker [Col. 1321D] of heaven and earth, of all things visible and invisible. And in one Lord Jesus Christ, the only-begotten Son of God, born from the Father before all ages: God from God, light from light, true God from true God; begotten, not made, consubstantial with the Father, through whom all things were made. For us human beings and for our salvation he descended from heaven. And he was incarnate from the Holy Spirit and the Virgin Mary, and became man. He was also crucified for us under Pontius Pilate; he suffered and was buried. And he rose again on the third day according to the Scriptures, and ascended into heaven; he sits at the right hand of the Father. And he will come again with glory to judge the living and the dead, and his kingdom will have no end. And in the Holy Spirit, [Col. 1322A] the Lord and giver of life, who proceeds from the Father and the Son; who with the Father and the Son is worshiped together and glorified together; who spoke through the prophets. And in one holy, catholic, and apostolic Church. I confess one baptism for the forgiveness of sins, and I await the resurrection of the dead and the life of the age to come. Amen.
 
 When the Apostles’ Creed has ended, the priest says:
 
@@ -38585,7 +38585,7 @@ And with your spirit.
 
 Then he washes his hands, saying this prayer:
 
-Grant to our senses, almighty Father, that just as the stains of our hands are washed away outwardly here, so the pollutions of our minds may be cleansed inwardly by you, and may the increase of holy virtues grow within us. Through, etc.
+Grant to our senses, almighty Father, that just as the stains of our hands are washed away outwardly here, so the pollutions of our minds may be cleansed inwardly by you, and may the increase of holy virtues grow within us. [Col. 1322B] Through, etc.
 
 This prayer mentioned above is to be said by the priest when he washes his hands, whether before Mass, during it, or afterward.
 
@@ -38593,17 +38593,17 @@ For as long as the offertory and the verses are sung, he says these prayers:
 
 O almighty Lord God, make me, a sinner, approach your holy altar today according to your great mercy, and grant that this sacrifice may not be for me a guilt leading to punishment, but a saving cleansing leading to forgiveness. Through, etc.
 
-O God, who make the worthy from the unworthy, the just from sinners, and the clean from the unclean, cleanse my heart and my body from every evil thought and stain of sin, and make me serve worthily and diligently at your holy altars. Mercifully grant that on this altar, to which I approach unworthy, I may offer acceptable sacrifices to your mercy for my sins and offenses and my countless daily transgressions; and for the flock entrusted to me, and for your male and female servants who have confessed their sins to me and given their alms; and for the people subject to me, and all those standing here, and all who are joined to me by familiarity; and for all who pursue me with detestable hatred and oppose the church entrusted to me; and for all Christian believers together.
+O God, who make the worthy from the unworthy, the just from sinners, and the clean from the unclean, cleanse my heart and my body from every evil thought and stain of sin, [Col. 1322C] and make me serve worthily and diligently at your holy altars. Mercifully grant that on this altar, to which I approach unworthy, I may offer acceptable sacrifices to your mercy for my sins and offenses and my countless daily transgressions; and for the flock entrusted to me, and for your male and female servants who have confessed their sins to me and given their alms; and for the people subject to me, and all those standing here, and all who are joined to me by familiarity; and for all who pursue me with detestable hatred and oppose the church entrusted to me; and for all Christian believers together.
 
-And through him may my vow and sacrifice be acceptable to you, who offered himself to you, God the Father, as a sacrifice for us; who is the highest priest and pontiff, and the only one without the stain of sin, Jesus Christ, your Son, our Lord, who lives and reigns with you in the unity of the Holy Spirit, God, through all things, etc.
+And through him may my vow and sacrifice be acceptable to you, who offered himself to you, God the Father, as a sacrifice for us; [Col. 1322D] who is the highest priest and pontiff, and the only one without the stain of sin, Jesus Christ, your Son, our Lord, who lives and reigns with you in the unity of the Holy Spirit, God, through all things, etc.
 
 ### Another
 
-Most merciful God, with all my strength I humbly beseech and implore your majesty to forgive the crimes that frail flesh wickedly committed through the temptation of evil spirits. Do not permit me to return to them again, but strengthen me in your justifications, grant me perseverance in them, and make me worthy to stand before the sight of your Majesty and offer you, Lord, a sacrifice with a chaste body and a pure heart. Through, etc. [Col. 1320C]
+Most merciful God, with all my strength I humbly beseech and implore your majesty to forgive the crimes that frail flesh wickedly committed through the temptation of evil spirits. Do not permit me to return to them again, but strengthen me in your justifications, grant me perseverance in them, and make me worthy to stand before the sight of your Majesty and offer you, Lord, a sacrifice with a chaste body and a pure heart. Through, etc.
 
-When the altar has been adorned, before receiving the offerings, he says these prayers most humbly before the altar, accusing himself tearfully:
+[Col. 1323A] When the altar has been adorned, before receiving the offerings, he says these prayers most humbly before the altar, accusing himself tearfully:
 
-Before your eyes, Lord, I stand as a guilty witness of my conscience. I do not dare to ask for what I do not deserve to obtain. You know, Lord, what is done within us; we are ashamed to confess what we are not afraid to commit. With words alone we obey you, but in our hearts we lie, and by our actions we show that we do not want what we say we want. But spare those who confess, Lord; forgive sinners; have mercy on those who ask you. And because my understanding is weak regarding your sacraments, and sinners have no words before you that are free from guilt, grant, Lord, that if you do not receive words from us, unworthy and hard-hearted sinners, you may grant forgiveness through yourself. You who live and reign, etc.
+Before your eyes, Lord, I stand as a guilty witness of my conscience. I do not dare to ask for what I do not deserve to obtain. You know, Lord, what is done within us; we are ashamed to confess what we are not afraid to commit. With words alone we obey you, but in our hearts we lie, and by our actions we show that we do not want what we say we want. But spare those who confess, Lord; forgive sinners; have mercy on those who ask you. And because my understanding is weak regarding your sacraments, and sinners have no words before you that are free from guilt, grant, Lord, that if you do not receive words from us, unworthy and hard-hearted sinners, you may grant forgiveness through yourself. [Col. 1323B] You who live and reign, etc.
 
 ### Another
 
@@ -38611,25 +38611,25 @@ O God, who command yourself to be entreated by sinners and a sacrifice of a cont
 
 ### Another
 
-Although trembling in conscience, Lord, we approach your altar, we retain confidence in your mercy. Although we are always found unworthy to celebrate the sacrifices, nevertheless, if we withdraw, we fear being condemned for disobedience. Therefore, almighty God, we ask that in paternal mercy and with a gracious countenance you deign to cleanse the inner parts of our hearts; and although we are guilty, may the mysteries consecrated to you nevertheless be pleasing to you.
+Although trembling in conscience, Lord, we approach your altar, [Col. 1323C] we retain confidence in your mercy. Although we are always found unworthy to celebrate the sacrifices, nevertheless, if we withdraw, we fear being condemned for disobedience. Therefore, almighty God, we ask that in paternal mercy and with a gracious countenance you deign to cleanse the inner parts of our hearts; and although we are guilty, may the mysteries consecrated to you nevertheless be pleasing to you.
 
 ### Another
 
-I stand guilty before the sight of your divine Majesty, presuming to invoke your holy name. Have mercy on me, Lord, a sinful human being; forgive an unworthy priest, through whose hands this offering appears to be offered. Spare me, Lord, polluted above all by the stain of capital crimes, and do not enter into judgment with your servant, because no living person will be justified in your sight. I am weighed down, that is, by vices and the pleasures of the flesh. Remember, Lord, that I am flesh; in your sight even the heavens are not clean, how much less I, an unclean earthly human being, like a menstruating cloth. I am unworthy, Lord Jesus Christ, to be alive; but you, who do not desire the death of a sinner but rather that he be converted and live, grant me forgiveness while I remain in the flesh, so that through the labors of penance I may deserve to enjoy eternal life in heaven, etc. You who live, etc. [Col. 1320D]
+I stand guilty before the sight of your divine Majesty, presuming to invoke your holy name. Have mercy on me, Lord, a sinful human being; forgive an unworthy priest, through whose hands this offering appears to be offered. Spare me, Lord, polluted above all by the stain of capital crimes, and do not enter into judgment [Col. 1323D] with your servant, because no living person will be justified in your sight. I am weighed down, that is, by vices and the pleasures of the flesh. Remember, Lord, that I am flesh; in your sight even the heavens are not clean, how much less I, an unclean earthly human being, like a menstruating cloth. I am unworthy, Lord Jesus Christ, to be alive; but you, who do not desire the death of a sinner but rather that he be converted and live, grant me forgiveness while I remain in the flesh, so that through the labors of penance I may deserve to enjoy eternal life in heaven, etc. You who live, etc.
 
 ### Another
 
-Most High God, forgive me, a sinner, because the iniquity of my whole life has overcome me. With what face shall I look upon you, Lord, or with what words shall I excuse myself before your presence? For I cannot be hidden from you, who consider the secrets of the heart. Woe is me, a sinner, who, standing unworthy before your holy altar, have offered no adornment of mind according to your will. But you, Lord, merciful and compassionate, who created all things from nothing and also formed me, undeserving as I am, and appointed me to serve you worthily, do not repel me from your heavenly sanctuary or confound me before the sight of your awesome Majesty.
+Most High God, forgive me, a sinner, because the iniquity of my whole life has overcome me. With what face shall I look upon you, [Col. 1324A] Lord, or with what words shall I excuse myself before your presence? For I cannot be hidden from you, who consider the secrets of the heart. Woe is me, a sinner, who, standing unworthy before your holy altar, have offered no adornment of mind according to your will. But you, Lord, merciful and compassionate, who created all things from nothing and also formed me, undeserving as I am, and appointed me to serve you worthily, do not repel me from your heavenly sanctuary or confound me before the sight of your awesome Majesty.
 
-I resolved to serve you and please you, Lord, but through my negligence I did not fulfill this. Therefore I see myself abandoned and naked both on earth and in heaven, because I have not kept the commandments of your precepts. I have no hope of salvation in my works, but my soul hangs solely upon the immensity of your mercy and trusts in the multitude of your compassion, that you may save it, Lord Jesus Christ, who do not desire the death of sinners, but that they be converted and live. [Col. 1321A]
+I resolved to serve you and please you, Lord, but through my negligence I did not fulfill this. Therefore I see myself abandoned and naked both on earth and in heaven, because I have not kept the commandments of your precepts. I have no hope of salvation [Col. 1324B] in my works, but my soul hangs solely upon the immensity of your mercy and trusts in the multitude of your compassion, that you may save it, Lord Jesus Christ, who do not desire the death of sinners, but that they be converted and live.
 
-Look upon me, miserable as I am, according to your great mercy, and let the cords of my sins be broken, so that I may not perish. Look upon me, Lord, from the seat of your Majesty, and drive away the darkness of my heart with the ray of your light. Protect me, Lord, with the shield of your truth and faith, so that the flaming arrows of the devil may not pierce me. And whatever it is that my unhappiness does not know how, or does not dare, to ask of you, grant that thing, Lord, according to your power: that which may save my soul from death, stretch out your hand to me as I emerge from this mire of darkness, show me the light, forgive what I have done, and grant that I may not do it again. Amen.
+Look upon me, miserable as I am, according to your great mercy, and let the cords of my sins be broken, so that I may not perish. Look upon me, Lord, from the seat of your Majesty, and drive away the darkness of my heart with the ray of your light. Protect me, Lord, with the shield of your truth and faith, so that the flaming arrows of the devil may not pierce me. And whatever it is that my unhappiness does not know how, or does not dare, to ask of you, grant that thing, Lord, according to your power: that which may save my soul from death, stretch out your hand to me as I emerge from this mire of darkness, [Col. 1324C] show me the light, forgive what I have done, and grant that I may not do it again. Amen.
 
 ### Another
 
 Forgive me, I beg you, Lord, whom the conscience of a stained life has made fearful and the confusion of my crimes has made captive. Since I cannot obtain forgiveness for myself, I stand here to pray for others. I bring before you, if you deign, Lord, to receive them: the groans of captives, the tribulations of peoples, the dangers of nations, the needs of travelers, the poverty of the weak, the despair of the sick, the failings of the elderly, the sighs of the young, the vows of virgins, the lamentations of widows, and the desolations of churches.
 
-But because the same chain of sin binds me as binds the people, I therefore mourn all their sufferings. May a prayer subjected to sins not harm your people, Lord. Through me the vow is offered; through you, Lord, may my duty be completed, because you live and reign, etc. [Col. 1321B]
+But because the same chain of sin binds me as binds the people, I therefore mourn all their sufferings. [Col. 1324D] May a prayer subjected to sins not harm your people, Lord. Through me the vow is offered; through you, Lord, may my duty be completed, because you live and reign, etc.
 
 Then, approaching the altar and kissing it, he says:
 
@@ -38637,7 +38637,7 @@ I beseech you, O almighty God and Lord, that through the merits of your saints, 
 
 Then he turns to receive the offerings of the priests and others. When someone offers an offering into the hand of a bishop or priest, he says:
 
-To you, Lord, my creator, I offer a sacrifice for the remission of all my sins and of all your faithful, living and dead.
+To you, Lord, my creator, I offer a sacrifice for the remission [Col. 1325A] of all my sins and of all your faithful, living and dead.
 
 ### For himself and for the entire Christian people
 
@@ -38649,7 +38649,7 @@ To you, Lord, my creator, I offer a sacrifice of appeasement and praise for myse
 
 The bishop or priest, receiving the offerings, says:
 
-Receive, Holy Trinity, this offering, which your servant N. offers to you, and grant that it may ascend pleasing to you into your presence, etc.
+Receive, Holy Trinity, this offering, [Col. 1325B] which your servant N. offers to you, and grant that it may ascend pleasing to you into your presence, etc.
 
 After receiving the offerings from the clergy or people, the deacon receives the offering from the hand of the subdeacon, saying:
 
@@ -38661,9 +38661,9 @@ Receive, holy Father, Lord, this offering and this sacrifice of praise in honor 
 
 And the bishop, receiving the offering from the deacon, says:
 
-May your offering be acceptable to almighty God. [Col. 1321C]
+May your offering be acceptable to almighty God.
 
-Then, with a pure heart, he offers the offering to the Lord, saying:
+[Col. 1325C] Then, with a pure heart, he offers the offering to the Lord, saying:
 
 Receive, holy Father, almighty and eternal God, this spotless victim, which I, your unworthy servant, offer to you, my living and true God, because I humbly entreat you for the eternal salvation of your entire Church. Through, etc.
 
@@ -38671,23 +38671,23 @@ Receive, holy Father, almighty and eternal God, this spotless victim, which I, y
 
 Receive, most merciful Father, the sacrifices of appeasement and praise that I, your unworthy servant, offer to you. You know my formation, for I have sinned in your sight and am unworthy to offer you a sacrifice. But you, merciful and compassionate, forgive me, and, being appeased, receive one who seeks forgiveness, most merciful Father. You who live, etc.
 
-These prayers are to be said when the offerings are offered at the altar; this is the first daily and general prayer:
+[Col. 1325D] These prayers are to be said when the offerings are offered at the altar; this is the first daily and general prayer:
 
 Receive, Holy Trinity, this offering, which I offer to you in memory of the incarnation, birth, passion, resurrection, and ascension into heaven of our Lord Jesus Christ; and in honor of your saints who have pleased you from the beginning of the world, and of those whose feast is celebrated today, and whose names and relics are held here. May it benefit them for honor and us for salvation, so that all of them may deign to intercede for us in heaven, whose memory we celebrate on earth. Through, etc.
 
 ### For oneself
 
-Receive, Holy Trinity, this offering, which I offer to you for my countless sins and offenses, so that you may forgive me for the past and guard me from the future; for the salvation of my body and soul, so that, with your gift, I may keep your commandments here and deserve to attain eternal rewards in the future. Through.
+Receive, Holy Trinity, this offering, which [Col. 1326A] I offer to you for my countless sins and offenses, so that you may forgive me for the past and guard me from the future; for the salvation of my body and soul, so that, with your gift, I may keep your commandments here and deserve to attain eternal rewards in the future. Through.
 
 ### Another for oneself
 
-Receive, Holy Trinity, this offering, which I offer to you for myself, a sinner and the most wretched of all human beings, and for my countless sins with which I have sinned before you in words, deeds, and thoughts; so that you may forgive me for the past and guard me from the future; for the health of my body and soul; and in thanksgiving for your blessings, which I use every day. Lord, turn your face away from my sins and blot out all my iniquities.
+Receive, Holy Trinity, this offering, which I offer to you for myself, a sinner and the most wretched of all human beings, and for my countless sins with which I have sinned before you in words, deeds, and thoughts; so that you may forgive me for the past and guard me from the future; for the health of my body and soul; and in thanksgiving for your blessings, which I use every day. Lord, turn your face away from my sins and blot out all my iniquities. [Col. 1326B]
 
-Hear, Lord, the voice of my supplication, when I pray to you, when I lift up my hands toward your holy temple. Lord, hear my prayer, and let my cry come to you. [Col. 1322A]
+Hear, Lord, the voice of my supplication, when I pray to you, when I lift up my hands toward your holy temple. Lord, hear my prayer, and let my cry come to you.
 
 ### Apology of the priest
 
-Receive my confession, Lord, my only hope of salvation, my God, because I have sinned against your law in thoughts, words, and deeds. My sins are many, and I am negligent regarding the work of God and my order, because I have sinned through vainglory, pride, detraction, fornication, theft, false testimony, perjury, adultery, and negligence in the work of God, which I performed carelessly; through carnal desire, laughter, hearing, sight, gluttony, drunkenness, and all my evils, which I committed negligently. For these I ask forgiveness, Lord, because I acknowledge myself guilty.
+Receive my confession, Lord, my only hope of salvation, my God, because I have sinned against your law in thoughts, words, and deeds. My sins are many, and I am negligent regarding the work of God and my order, because I have sinned through vainglory, pride, detraction, fornication, theft, false testimony, perjury, adultery, and negligence in the work of God, which I performed carelessly; through carnal desire, laughter, hearing, sight, gluttony, drunkenness, and all my evils, which I committed negligently. [Col. 1326C] For these I ask forgiveness, Lord, because I acknowledge myself guilty.
 
 ### Another
 
@@ -38695,7 +38695,7 @@ O God, who spoke through the mouth of David: “Vow and repay to the Lord your G
 
 ### Another
 
-Receive, Holy Trinity, this offering, which I, your unworthy and sinful servant, presume to offer to you for the absolution of my sins, so that, through your mercy, Lord, remission and forgiveness of sins may be granted to me. [Col. 1322B]
+Receive, Holy Trinity, this offering, which I, your unworthy and sinful servant, presume to offer to you for the absolution of my sins, so that, through your mercy, Lord, remission and forgiveness of sins may be granted to me. [Col. 1326D]
 
 ### For relatives, brothers, and sisters
 
@@ -38703,7 +38703,7 @@ Receive, Holy Trinity, this offering, which I offer to you for myself, a sinner,
 
 ### For the king and the Christian people
 
-Receive, Holy Trinity, this offering, which we offer to you for our king, his venerable offspring, and the stability of his kingdom; for all the Christian people; for our almsgivers; and for those who continually remember us in their prayers. May they receive forgiveness of sins here and deserve to attain eternal rewards in the future. Through, etc.
+Receive, Holy Trinity, this offering, which we offer to you for our king, his venerable offspring, [Col. 1327A] and the stability of his kingdom; for all the Christian people; for our almsgivers; and for those who continually remember us in their prayers. May they receive forgiveness of sins here and deserve to attain eternal rewards in the future. Through, etc.
 
 ### For the Catholic Church
 
@@ -38711,7 +38711,7 @@ Receive, Holy Trinity, this offering, which I offer to you for your holy Catholi
 
 ### For the salvation of the living
 
-Receive, Holy Trinity, this offering, which I offer to you for the salvation of your servant N., so that, having received forgiveness of sins through your gift, he or she may also deserve to receive the immense joys of eternal life.
+Receive, Holy Trinity, this offering, which I offer to you for the salvation of your servant N., so that, having received forgiveness of sins through your gift, [Col. 1327B] he or she may also deserve to receive the immense joys of eternal life.
 
 ### For the sick
 
@@ -38723,7 +38723,7 @@ Receive, Holy Trinity, this offering, which I offer to you for the soul of your 
 
 ### For the dead
 
-Receive, Holy Trinity, this offering, which I offer to you for the souls of your male and female servants. Grant them eternal rest among your saints and elect, so that in their fellowship they may enjoy eternal life. Through, etc.
+Receive, Holy Trinity, this offering, which I offer to you for the souls of your male and female servants. [Col. 1327C] Grant them eternal rest among your saints and elect, so that in their fellowship they may enjoy eternal life. Through, etc.
 
 ### Another
 
@@ -38731,7 +38731,7 @@ Receive, Holy Trinity, this offering, which we offer to you for all who have die
 
 ### Universal prayer for all
 
-Receive, Holy Trinity, this offering, which I offer to you for our elder and the entire congregation of Saint Peter; for my parents, brothers, benefactors, the faithful, friends, and relatives; for all those standing here; for all who have commended themselves to me; for those who pray for me; and for those for whom I am bound to pray, both living and dead. May you, Lord, in your mercy, grant forgiveness and remission of sins to them and to me, and bestow eternal life. Through, etc. [Col. 1322C]
+Receive, Holy Trinity, this offering, which I offer to you for our elder and the entire congregation of Saint Peter; for my parents, brothers, benefactors, the faithful, friends, and relatives; [Col. 1327D] for all those standing here; for all who have commended themselves to me; for those who pray for me; and for those for whom I am bound to pray, both living and dead. May you, Lord, in your mercy, grant forgiveness and remission of sins to them and to me, and bestow eternal life. Through, etc.
 
 Then he places the offering on the altar and says:
 
@@ -38739,7 +38739,7 @@ Sanctify, Lord, this offering, so that it may become for us the body of your onl
 
 Then the deacon receives wine from the subdeacon and mixes it with water in the chalice, saying:
 
-O God, who wonderfully created the dignity of human substance and more wonderfully restored it, grant us, we ask, that through the mystery of this water and wine we may become participants in the divinity of him who deigned to become a participant in our humanity, Jesus Christ.
+O God, who wonderfully created the dignity of human substance and more wonderfully restored it, [Col. 1328A] grant us, we ask, that through the mystery of this water and wine we may become participants in the divinity of him who deigned to become a participant in our humanity, Jesus Christ.
 
 Then the deacon offers the chalice upon the altar and says to the bishop:
 
@@ -38751,7 +38751,7 @@ We offer you, Lord, the chalice of salvation, and we beseech your mercy, that it
 
 ### The following prayer
 
-Lord Jesus Christ, who on the cross of your passion willed blood and water to flow from your side, from which you might consecrate your Church to yourself, receive this sacrifice placed upon your altar, and most mercifully grant that, for our redemption and also for that of the whole world, it may ascend before the sight of your divine Majesty with the fragrance of sweetness. You who live, etc. [Col. 1322D]
+Lord Jesus Christ, who on the cross of your passion [Col. 1328B] willed blood and water to flow from your side, from which you might consecrate your Church to yourself, receive this sacrifice placed upon your altar, and most mercifully grant that, for our redemption and also for that of the whole world, it may ascend before the sight of your divine Majesty with the fragrance of sweetness. You who live, etc.
 
 After placing the chalice on the altar, the priest says:
 
@@ -38763,7 +38763,7 @@ In the name of the Father, and of the Son, and of the Holy Spirit, may this new 
 
 He adds:
 
-Come, sanctifier, almighty and eternal God, and bless this sacrifice prepared for you. You who live, etc.
+[Col. 1328C] Come, sanctifier, almighty and eternal God, and bless this sacrifice prepared for you. You who live, etc.
 
 Afterward the bishop receives incense from the deacon and places it in the thurible, saying:
 
@@ -38771,7 +38771,7 @@ Through the intercession of the holy archangel Gabriel, who stands at the right 
 
 This prayer is to be said while, after incense has been placed in the thurible, the thurible itself is carried around the bread and chalice.
 
-We remember, eternal God, almighty Father, the most glorious passion of your Son, as well as his resurrection and his ascension into heaven. Therefore we ask your Majesty that the prayers of our humility may ascend, together with this incense, into the presence of your mercy, and that the fullness of divinity may descend upon this bread and upon this chalice. May there also descend, Lord, that incomprehensible and invisible majesty of the Holy Spirit, just as once it descended upon the sacrifices of the fathers. Through the same one, of the same one, etc. [Col. 1328D]
+We remember, eternal God, almighty Father, the most glorious passion of your Son, as well as his resurrection and his ascension into heaven. [Col. 1328D] Therefore we ask your Majesty that the prayers of our humility may ascend, together with this incense, into the presence of your mercy, and that the fullness of divinity may descend upon this bread and upon this chalice. May there also descend, Lord, that incomprehensible and invisible majesty of the Holy Spirit, just as once it descended upon the sacrifices of the fathers. Through the same one, of the same one, etc.
 
 As the bishop or priest goes around the altar with incense, he says:
 
@@ -38781,7 +38781,7 @@ The following:
 
 Let my prayer be directed like incense in your presence, O Lord.
 
-When the fragrance of the incense is offered to the priest and the brothers, each one says:
+[Col. 1329A] When the fragrance of the incense is offered to the priest and the brothers, each one says:
 
 May the Lord kindle within us the fire of his love and the flame of eternal charity.
 
@@ -38793,7 +38793,7 @@ Then each of them answers him:
 
 May almighty God receive the sacrifice from your hands, and may your prayers ascend as a memorial before the Lord. May he himself hear you, who appointed you an intercessor for our sins.
 
-May all the saints and elect of God pray for you; may he remember all your sacrifice, and may your holocaust be made rich.
+May all the saints and elect of God pray for you; [Col. 1329B] may he remember all your sacrifice, and may your holocaust be made rich.
 
 Offer to the Lord a sacrifice of praise and repay your vows to the Most High.
 
@@ -38801,21 +38801,21 @@ May the Lord hear you as you pray for the salvation of us all.
 
 May almighty God have mercy on you and forgive you all your sins.
 
-May the Lord be in your heart and in your mouth, and may he receive from your hands a sacrifice acceptable to you for our salvation and that of us all. [Col. 1329B]
+May the Lord be in your heart and in your mouth, and may he receive from your hands a sacrifice acceptable to you for our salvation and that of us all.
 
 Then the priest turns to the altar and pours out this prayer for himself before the Secret:
 
-Lord Jesus Christ, our faith and confidence, and our entire consolation in the hardship of this present life, mercifully look upon me, unworthy and a sinner, and hear me with favor. Send your holy angel from heaven to receive this offering and present it before the sight of your mercy as a memorial of me, for the praise and glory of your name. You who live, etc.
+Lord Jesus Christ, our faith and confidence, and our entire consolation in the hardship of this present life, [Col. 1329C] mercifully look upon me, unworthy and a sinner, and hear me with favor. Send your holy angel from heaven to receive this offering and present it before the sight of your mercy as a memorial of me, for the praise and glory of your name. You who live, etc.
 
 Then he begins the Secret prayers. When they have been completed and the Preface has been said, while the others sing “Holy, holy, holy,” the priest is to say this prayer quickly:
 
-Lord God, who desire not the death but the repentance of sinners, do not repel me, miserable and fragile sinner that I am, from your mercy. Do not look upon my sins, crimes, impurities, and shameful thoughts, by which I am tearfully separated from your will. Rather look upon your mercies and upon the faith and devotion of those who through me, a sinner, implore your mercy. And because you have willed that I, unworthy as I am, should stand between you and your people, make me such that I may worthily be able to entreat your mercy for myself and for this same people of yours.
+Lord God, who desire not the death but the repentance of sinners, do not repel me, miserable and fragile sinner that I am, from your mercy. Do not look upon my sins, crimes, impurities, and shameful thoughts, by which I am tearfully separated from your will. Rather look upon your mercies and upon the faith [Col. 1329D] and devotion of those who through me, a sinner, implore your mercy. And because you have willed that I, unworthy as I am, should stand between you and your people, make me such that I may worthily be able to entreat your mercy for myself and for this same people of yours.
 
 Lord, join our voices to the voices of your holy angels. As they praise you continually and tirelessly in eternal blessedness, so may we also, through their intervention, deserve to praise you blamelessly in this pilgrimage. Through, etc.
 
 When this prayer has ended, before the sacraments begin, he commends himself to the Lord again, saying:
 
-As I am about to commemorate the saving sacrifice of the whole world, I behold its dignity and my own foulness, and my conscience is tormented by sins. Yet because you, God, are greatly merciful, I implore you to deign to give me a contrite spirit, which you have revealed as a sacrifice pleasing to you, so that, purified by it, I may approach with devout hands the life-giving sacrifice that abolishes all my sins and infuses into me thereafter the protection needed to avoid them forever. May it also bestow the benefits of salvation in this life and the life to come upon all the faithful, living and dead, for whom it is offered to you. You who live and reign, etc. [Col. 1330A]
+As I am about to commemorate the saving sacrifice of the whole world, [Col. 1330A] I behold its dignity and my own foulness, and my conscience is tormented by sins. Yet because you, God, are greatly merciful, I implore you to deign to give me a contrite spirit, which you have revealed as a sacrifice pleasing to you, so that, purified by it, I may approach with devout hands the life-giving sacrifice that abolishes all my sins and infuses into me thereafter the protection needed to avoid them forever. May it also bestow the benefits of salvation in this life and the life to come upon all the faithful, living and dead, for whom it is offered to you. You who live and reign, etc.
 
 Then, with the greatest reverence, he begins the “Therefore,” and the ministers, standing on their steps, sing the psalms until the “Therefore” is finished.
 
@@ -38823,11 +38823,11 @@ May the Lord hear you.
 
 To you, O Lord, I have lifted up my soul.
 
-Have mercy on me, O God, according to [the] great …
+[Col. 1330B] Have mercy on me, O God, according to [the] great …
 
 O Lord, refuge …
 
-He who dwells in [the] help … [Col. 1330B]
+He who dwells in [the] help …
 
 ### Then the Prayers
 
@@ -38841,7 +38841,7 @@ The eyes of the Lord are upon the just, and his ears are toward their prayers.
 
 Let your mercy, O Lord, be upon us, just as we have hoped in you.
 
-Arise, O Lord; help us and redeem us for the sake of your name.
+Arise, O Lord; help us and redeem us for the sake of your name. [Col. 1330C]
 
 Lord, hear my prayer, and let my cry come to you.
 
@@ -38855,9 +38855,9 @@ We ask, Lord, lend your merciful ears to our prayers, and, knower of hidden thin
 
 ### Within the Canon
 
-In the first place, together with your servant our Pope N., and for all orthodox bishops and cultivators of the Apostolic Faith, abbots, governors, and rulers of the holy Church of God, and for all the holy people of God.
+In the first place, together with your servant our Pope N., and [Col. 1330D] for all orthodox bishops and cultivators of the Apostolic Faith, abbots, governors, and rulers of the holy Church of God, and for all the holy people of God.
 
-Remember, Lord, your male and female servants—namely, all those joined to me by blood relationship, familiarity, or friendship; all those who confess their sins to me and refresh me with good things in your name; and all those standing here. [Col. 1330D]
+Remember, Lord, your male and female servants—namely, all those joined to me by blood relationship, familiarity, or friendship; all those who confess their sins to me and refresh me with good things in your name; and all those standing here.
 
 This offering also of my humility and devotion, which I offer to you for the chastisement and forgiveness of my sins and criminal deeds, for dissolving and illuminating the blind and stony hardness of my heart, I ask, Lord, that you receive it graciously, and spread over me the bosom of your compassion; enlighten me, open my understanding, grant me the spirit of amendment, and grant wretched me access to return to you through the laments of repentance. Through Christ our Lord, etc.
 
