@@ -19333,325 +19333,371 @@ His gravity was seasoned with courtesy. Thus, to the crowd that gathered around 
 
 ### 13.
 
-He came to the most sacred see, prepared for this pious administrator by the almighty Lord before the ages and presented at that very time. An immense gathering of the people took place, and infinite trembling among the populace; the city exulted with unprecedented joys. The clergy assembled from the monasteries, a multitude of nuns gathered, and every class and both sexes came together for the rejoicing in greater numbers than usual. On that day of such solemnity, the joyful Church weaned her offspring—until then suckled at her maternal breasts, but now grown up in Christ’s grace—and established herself spiritually as a mother who would afterward give birth, with the sweetest affection, to little sons in whom Christ might be formed (958).
+He came to the most sacred see, prepared for this pious administrator by the almighty Lord before the ages and presented at that very time. An immense gathering of the people took place, and infinite trembling among the populace; the city exulted with unprecedented joys. The clergy assembled from the monasteries, a multitude of nuns gathered, and every class and both sexes came together for the rejoicing in greater numbers than usual. On that day of such solemnity, the joyful Church weaned [Col. 0949C] her offspring—until then suckled at her maternal breasts, but now grown up in Christ’s grace—and appointed that offspring to be a spiritual mother who would afterward give birth for her, with the sweetest affection, to little sons in whom Christ might be formed (958).
 
 The bishops who were present in large numbers, together with the senate of this holy clergy, had the man chosen by God and by human beings seated upon the pontifical chair. With everyone acclaiming in a voice of rejoicing and salvation, they all raised praise to God with a shout; and, with organs, cymbals, and every other sign of joy, they resounded as loudly as each could.
 
-[Note: [Col. 0949] Witness 2 reads *cathenis* (“chains”), but this is corrected. Witness 3 has *qua quis ei* in place of the printed *quo quisque poterat* (“as much as each was able”).]
+[Note: [Col. 0949] For *eatenus*, “until then,” 2 had *cathenis*, “chains,” but it was corrected. Printed reading: cathenis 2. sed corr.]
+
+[Note: [Col. 0949] At *quo*, “as [each could],” 3 has *Qua quis ei*, literally “by which someone to him,” a defective reading. Printed reading: Qua quis ei. 3.]
 
 ### 14.
 
-From then on, all his attention and every effort of his was directed either to the protection or to the adornment of holy Mother Church. She had to be protected externally and adorned internally; protected in secular matters and adorned in spiritual ones.
-
-[Note: [Col. 0949] Witness 3 reads *muniendo scilicet ext. ornando int.* (“namely, protecting externally and adorning internally”); the words *in saecularibus* and *in spiritualibus* are absent in the manuscript.]
+From then on, all his attention and every effort of his was directed either to the protection or to the adornment of holy Mother Church. She had to be protected externally and adorned internally; [Col. 0949D] protected in secular matters and adorned in spiritual ones.
 
 Above all, he loved the beauty of the house of the Lord and the place where his glory dwells (Ps. 25:8). He showed with great discernment in many ways that he burned with this desire.
 
-[Note: [Col. 0949] Witnesses 2 and 3 read *specialiter* (“especially”) for *perspicaciter* (“with discernment”).] It is unnecessary to touch upon it here in writing, since the memory of his illustrious deeds is still fresh, and among his people no one who loves faith and truth will cease to speak of him. Nevertheless, as we proposed, some of these matters must not be concealed in the silence of writing, for the example and instruction of very many writers.
+ It is unnecessary to touch upon it here in writing, [Col. 0950A] since the memory of his illustrious deeds is still fresh, and among his people no one who loves faith and truth will cease to speak of him. Nevertheless, as we proposed, some of these matters must not be concealed in the silence of writing, for the example and instruction of very many people.
 
-It is impossible to unfold the deeds of so great a man through the daily advances of his virtues, or adequately to raise his great merits with praises worthy of his actions—merits which, far and wide, like a most prudent bee, he had gathered by doing good and supporting the poverty of the oppressed, so that he might be the good fragrance of Christ. For some this was life, but for others death. Those who, inflamed by the zeal of bitterness and ignorant of the liberal arts, attempted by slander and cursing to pervert pursuits utterly unlike their own—pursuits which they could neither alter nor knew how to honor—brought upon themselves death and perpetual woe, in accordance with the prophet’s threat:
+It is impossible to unfold the deeds of so great a man through the daily advances of his virtues, or adequately to raise his great merits with praises worthy of his actions—merits which, far and wide, like a most prudent bee, he had gathered by doing good and supporting the poverty of the oppressed, so that he might be the good fragrance of Christ. For some this was life, but for others death. Those who, inflamed by the zeal of bitterness and ignorant of good arts, attempted [Col. 0950B] by slander and cursing to pervert pursuits utterly unlike their own—pursuits which they could neither alter nor knew how to honor—brought upon themselves death and perpetual woe, in accordance with the prophet’s threat:
 
 > “Woe to those who call evil good and good evil, who put darkness for light and light for darkness!” (Isa. 5:20)
 
 > “But whoever follows me,” says the Lord, “does not walk in darkness” (John 8:12).
 
-[Note: [Col. 0949] In witness 2, the abbreviation or words *dicit Dominus* (“the Lord says”) are absent. Witness 1 has *arcium* for *artium* (“arts”); witness 3 has *deest* (“is absent”).]
-
 This man certainly does not judge before the proper time, nor does he readily condemn anyone according to his own opinion. It is therefore the purpose of the good to displease the worst; hence they measure their lives not by the vanity of popular talk but by the truth of conscience.
+
+[Note: [Col. 0949] 3 has *muniendo scilicet ext. ornando int.*, “namely, by protecting externally and adorning internally”; *munienda in saecularibus, ornanda in spiritualibus*, “to be protected in secular matters and adorned in spiritual matters,” is absent. Printed reading: muniendo scilicet ext. ornando int. (m. in s. o. in sp. desunt) 3.]
+
+[Note: [Col. 0949] For *perspicaciter*, “with discernment,” 2 and 3 read *specialiter*, “especially.” Printed reading: specialiter 2. 3.]
+
+[Note: [Col. 0949] For *artium*, “of arts,” 1 writes *arcium* (a spelling that can also mean “of citadels”). Printed reading: arcium 1.]
+
+[Note: [Col. 0949] The first *nec*, “neither/not,” in the clause about changing these pursuits is absent from 3. Printed reading: deest 3.]
+
+[Note: [Col. 0949] *Dicit Dominus*, “says the Lord,” is absent from 2. Printed reading: d. D. deest 2.]
 
 ### 15.
 
-Before this man, learned in the law of the Lord, ascended the pontifical platform, the seditious citizens of our commonwealth—whom the spirit of Satan had inflamed to rise against the Lord’s anointed—had some hope of gaining possession of Cologne. They therefore supposed that they could either bind the magnanimous people of the Lotharian kingdom to themselves by a treaty of peace, or terrify them through repeated attacks of war, taking advantage of the location.
-
-[Note: [Col. 0949] Witness 2 reads *Coloniam* (“Cologne”) rather than *Colonia*. Witness 3 has *arbitrantur* (“they suppose”) rather than *arbitrabantur* (“they supposed”).]
+Before this man, learned in the law of the Lord, ascended the pontifical platform, the seditious citizens of our commonwealth—whom the spirit of Satan had inflamed to rise against the Lord’s anointed—[Col. 0950C] had some hope of gaining possession of Cologne. They therefore supposed that they could either bind the magnanimous people of the Lotharian kingdom to themselves by a treaty of peace, or terrify them through repeated attacks of war, taking advantage of the location.
 
 But after this son of peace, the ever-watchful guardian of God’s churches, entered the city, it cannot be said with what grief those enemies of peace in that kingdom were afflicted, or with what despair they were overwhelmed regarding the completion of their undertaking. Hence came blasphemies, curses, shameful insults, and inventions of impiety of many kinds. Truly, “iniquity lied to itself”: since they knew that the shepherd could neither be corrupted nor seduced in any way, they therefore tried, if such a fraud could succeed, to turn the flock away from his love by these displays of lies.
 
-[Note: [Col. 0949] L reads *inimica* (“the hostile [iniquity]”) rather than *mentita* (“lied”). Witness 3 reads *quem* (“whom”) rather than *quia* (“because”).]
-
 Learned and eminent men know how to incur envy, but they do not wish to possess it.
+
+[Note: [Col. 0949] For ablative *Colonia*, “Cologne,” 2 has accusative *Coloniam*. Printed reading: Coloniam 2.]
+
+[Note: [Col. 0949] For *arbitrabantur*, “they supposed,” 3 has present *arbitrantur*, “they suppose.” Printed reading: arbitrantur 3.]
+
+[Note: [Col. 0949] For *mentita*, “having lied,” L has *inimica*, “hostile.” Printed reading: inimica L.]
+
+[Note: [Col. 0949] For *quia*, “because,” 3 has *quem*, “whom.” Printed reading: quem 3.]
+
+[Note: [Col. 0949] For accusative *invidiam*, “envy,” 1 has *inuidia*, a nominative or ablative form. Printed reading: inuidia 1.]
 
 ### 16.
 
-At that time Mainz, a distinguished and wealthy city, was besieged by the emperor and his army. It was filled with enemies and plotters against the kingdom; and where the sincerity of religion had usually flourished, there the greatest cesspool of dissension had gathered.
+[Col. 0950D] At that time Mainz, a distinguished and wealthy city, was besieged by the emperor and his army. It was filled with enemies and plotters against the kingdom; and where the sincerity of religion had usually flourished, [Col. 0951A] there the greatest cesspool of dissension had gathered.
 
 There was varied talk among the nobles and the populace alike concerning the archbishop of the place. Some raised his innocence to heaven and praised his virtues; they said that he especially condemned the things being done everywhere, and particularly in those regions, wrongly amid the civil conflict. They claimed that he abhorred the factions and therefore withdrew from their midst, caring little to whom the city was open or to whom the soldiers gave obedience.
 
 Such, for the most part, was the opinion of those who, bound together by an impious conspiracy, boasted that in everything they relied upon his constant assistance and counsel. They defended their cause on this sole ground: that the cause could not possibly be blameworthy if such a man was willing to associate with it.
 
-Others—and nearly all those whose hearts divine grace had inspired—revered the authority ordained by God, followed the emperor with complete devotion, and regarded him as protector of resources, avenger of crimes, and bestower of honors.
+Others—and nearly all those whose hearts divine grace had inspired—revered the authority ordained by God, [Col. 0951B] followed the emperor with complete devotion, and regarded him as protector of resources, avenger of crimes, and bestower of honors.
 
 Even those who were concerned with their household property, wives, and children, or for whom peace and personal safety had somehow become dear, judged this man’s merits quite differently.
 
 For the present, let us leave these matters to God’s judgment and return from this digression to our subject.
 
+[Note: [Col. 0949] For *referta*, “filled,” 2 had *refecta*, “restored/refreshed,” but it was corrected. Printed reading: refecta. 2. sed corr.]
+
+[Note: [Col. 0951] For *a Deo ordinatam*, “ordained by God,” 2 has the order *ordinatam a Deo*. Printed reading: o. a deo 2.]
+
+[Note: [Col. 0951] For *vindicem*, “avenger,” 2 had the defective *vindicte*, but it was corrected. Printed reading: vindicte 2. sed corr.]
+
 ### 17. (953)
 
 The emperor therefore invited the new guardian and designated bishop of the city of Agrippina to a new council, having tested what he was capable of in mind and speech before this responsibility had been imposed upon him. There the favor of those assenting was divided on either side, and it was almost uncertain whom one ought rightly to trust.
 
-This was heard more frequently—even from those serving in the royal camp: they praised the courage of the opposing party and preferred, in the same people, the innocence of their cause, saying that they had been compelled, and most unwillingly, to undertake this labor. Since no one, not even among the enemies, was found so insane as to blaspheme royal majesty, they attributed all the guilt and malice of the cruelty that had begun to his brother Henry, duke and illustrious margrave of Bavaria, a man feared by barbarians and all the peoples of those regions, even by the Greeks.
+This was heard more frequently—even from those serving in the royal camp: they praised the courage of the opposing party and preferred, in the same people, the innocence of their cause, saying that they had been compelled, [Col. 0951C] and most unwillingly, to undertake this labor. Since no one, not even among the enemies, was found so insane as to blaspheme royal majesty, they attributed all the guilt and malice of the cruelty that had begun to his brother Henry, duke and illustrious margrave of Bavaria, a man feared by barbarians and all the peoples of those regions, even by the Greeks.
 
-In truth, the better a person was, and the more ready to preserve faith toward the emperor and his kingdom, the more hated they held him to be.
+In truth, the better a person was, and the more ready to preserve faith toward the emperor and his kingdom, the more they hated him.
 
-[Note: [Col. 0951] Witnesses 2 and 3 have *Agrippine* for *Agripinae* (“of Agrippina”); witness 3 has *in* for *inter* (“among”). An editorial note paraphrases the point: “Thus they hated Henry because he was useful and faithful to the king.”]
-
-Bruno, the glorious bishop desired by God’s people, voluntarily and willingly cast himself into the hatred directed against that impious and perjured faction of brigands. He gave no one an opportunity, by a divided heart or deceitful lips, either to conceal what he wished or to pretend what he did not wish. Thus he neither resolved to deceive another nor consented to be deceived by another.
+Bruno, the glorious bishop desired by God’s people, voluntarily and willingly exposed himself to the hatred of that impiously plundering and perjured faction. He gave no one an opportunity, by a divided heart or deceitful lips, either to conceal what he wished or to pretend what he did not wish. [Col. 0951D] Thus he neither resolved to deceive another nor consented to be deceived by another.
 
 Nevertheless, he first tested the hard hearts of the rebels, to see whether they could in any way be cured by the remedies of his life-giving persuasion and teaching. He delayed the final treatment with the cautery until, in pious solicitude, he had more carefully tested what this unbridled audacity promised him.
 
-[Note: [Col. 0951] Witness 3 falsely begins a new chapter with *odivit* (“he hated”); the editor, aware of the error, placed it in the margin. Witness 3 omits *ab alio* (“by another”). Witness 3 also omits *dura* (“hard”) in *dura tentavit corda* (“he tested the hard hearts”). Witness 2 reads *quod* rather than *quid* (“what”).]
+[Note: [Col. 0951] For *Agripinae*, “of Agrippina,” 2 and 3 have *Agrippine*. Printed reading: Agrippine 2. 3.]
+
+[Note: [Col. 0951] For *inter*, “among,” 3 has *in*, “in.” Printed reading: in 3.]
+
+[Note: [Col. 0951] Thus they hated Henry because he was useful and faithful to the king. Printed reading: Igitur Heinricum oderant, quod regi utilis et fidus esset.]
+
+[Note: [Col. 0951] For *odium*, “hatred,” 3 has *odivit*, “he hated.” That witness wrongly begins a new chapter here, but, recognizing the error, writes V. in the margin. Printed reading: odivit 3. qui falso hic novum caput incipit, sed erroris conscius ad marginem. V. posuit.]
+
+[Note: [Col. 0951] *Ab alio*, “by another,” is absent from 3. Printed reading: ab a. desunt 3.]
+
+[Note: [Col. 0951] *Corda*, “hearts,” is absent from 3. Printed reading: deest 3.]
+
+[Note: [Col. 0951] For interrogative *quid*, “what,” 2 has relative *quod*, “what/that which.” Printed reading: quod 2.]
 
 ### 18.
 
-The emperor’s son Liudulfus was a leader in that conspiracy, a young man uniquely illustrious and remarkable. If he had not believed his seducers, and had wished to be an heir rather than a traitor, he would have been capable not only of preserving but also of adorning the monuments of victory belonging to his fatherland. But because he hastened to become rich and did not deserve to obey his father’s counsel, what happened to him was in accordance with Solomon’s truthful saying: “An inheritance to which one hastens at the beginning will, in the end, lack blessing” (Prov. 20:21).
+[Col. 0952A] The emperor’s son Liudulfus was a leader in that conspiracy, a young man uniquely illustrious and remarkable. If he had not believed his seducers, and had wished to be an heir rather than a traitor, he would have been capable not only of preserving but also of adorning the monuments of victory belonging to his fatherland. But because he hastened to become rich and did not deserve to obey his father’s counsel, what happened to him was in accordance with Solomon’s truthful saying: “An inheritance to which one hastens at the beginning will, in the end, lack blessing” (Prov. 20:21).
 
-[Note: [Col. 0951] The name appears as *liodulfus* in witness 1 and *ludolfus* in witness 2. Witness 1 has the correction *confirmanda* (“to be strengthened”) in place of *conservanda* (“to be preserved”). Witness 3 reads *E. uero p.* for *Egregius ergo ut*, and witness 1 has *conteptu* for *contemptu* (“contempt”). Witness 3 omits *tui* (“your”) after *genitoris* (“father”), has *contristare* for *contristari* (“to grieve”), and omits *cum amicis* (“with friends”).]
+Thus the outstanding and, as we have said, already designated future priest of the Lord, full of counsel and grieving over the contempt shown to his brother and the ruin of his nephew, received him under a pledge secured by hostages when he came to the camp with beastlike intent. He had him brought out of the crowd and addressed him privately:
 
-Thus the outstanding and, as we have said, already designated future priest of the Lord, full of counsel and grieving over his brother’s contempt and his nephew’s destruction, received him under a pledge secured by hostages when he came to the camp with beastlike intent. He had him brought out of the crowd and addressed him privately:
-
-> “You do not know, most illustrious of all the young men whom the earth has borne, how much good you will do for yourself and your people if you admit the words of my admonition into the secret places of your heart. You are the greatest concern of your most glorious father and our glory; what hope do you leave us if you remove yourself from our prayers?
+> “[Col. 0952B] You do not know, most illustrious of all the young men whom the earth has borne, how much good you will do for yourself and your people if you admit the words of my admonition into the secret places of your heart. You are the greatest concern of your most glorious father and our glory; what hope do you leave us if you remove yourself from our prayers?
 >
 > “Do you not regard the venerable gray hair of your pious father, whom it is not expedient for you to grieve or to injure? Do you not remember his paternal devotion toward you from your earliest childhood? Believe me: you offend God when you despise your father. There is no excuse for you. Whatever new undertaking you devise against this kingdom without his consent bears upon his injury.
 >
-> “You discuss your cause with your enemies, whereas you ought to do so with your friends. They seek in you not you, but what belongs to themselves; they care little for your safety; they measure everything by words, not by the truth of things. This is not wisdom.
+> “You discuss your cause with your enemies, whereas you ought to do so with your friends. They seek in you not you, but their own interests; [Col. 0952C] they care little for your safety; they measure everything by words, not by the truth of things.
 >
 > “See, I beg you, where they are leading you, lest they seduce you. You were the joy and crown of your father, the hope and delight of the whole kingdom; how have you been changed into bitterness? Stop at last being Absalom, so that you may be Solomon. Consider who exalted you so greatly, who bound all the princes of this kingdom to you by the sworn loyalty of their oaths. Why did he do this? Was it so that you might prove ungrateful? Was it so that you might learn to be a traitor? They are truly mad who wish to deceive you in this way. Fear your father’s daily sobs, dread his frequent groans, shudder at his tears.
 >
-> “He would bear with less distress the seizure of his entire kingdom by enemies than the fact that you, for whom he preserves the kingdom, have been seduced—alas!—by poisonous flatteries, though your innocent heart is his. The bosom of paternal devotion lies open; there is no deceit in it. Your pious father grieves that his son has been snatched from him by the wickedness of corrupt men; he will rejoice at your return.
+> “He would bear the loss of his whole kingdom to his enemies less painfully than losing you, for whom he preserves the kingdom. Alas, your innocent heart has been led astray by poisonous flatteries! [Col. 0952D] The bosom of paternal devotion lies open; there is no deceit in it. Your pious father grieves that his son has been snatched from him by the wickedness of corrupt men; he will rejoice at your return.
 >
 > “If he is somewhat angrier with your seducers, he will quickly grow calm when he has received you, his delight, and he will judge that this was done not through crime but through error, when he realizes that you have been restored to him—you whom he loved even more than himself!”
 
-[Note: [Col. 0951] Witness 3 adds *tectum* (“roof” or “shelter”) after *cogita* (“consider”). The text reads *fecit* (“he did”); L has *fecisti* (“you did”). Witness 3 omits *deest* (“is absent”) in one place. Witness 3 reads *tua* (“your things”) rather than *sua* (“their things”). Witness 3 adds *Non istud est sapere* (“This is not wisdom”) but omits *ne forte* (“lest perhaps”).]
+[Note: [Col. 0951] For *Liudulfus*: *liodulfus* 1; *ludolfus* 2—spellings of Liudulf’s name. Printed reading: liodulfus 1. ludolfus 2.]
+
+[Note: [Col. 0951] In 1, *confirmanda*, “to be strengthened,” is corrected to *conseruanda*, “to be preserved.” Printed reading: confirmanda corr. conseruanda 1.]
+
+[Note: [Col. 0951] For *Egregius ergo ut*, “thus the outstanding [man], as,” 3 has abbreviated *E. uero p.*, “the outstanding [man], however, full [of counsel].” Printed reading: E. uero p. 3.]
+
+[Note: [Col. 0951] For *contemptu*, “contempt,” 1 has the spelling *conteptu*. Printed reading: conteptu 1.]
+
+[Note: [Col. 0951] *Tui*, “your,” is absent from 3. Printed reading: deest 3.]
+
+[Note: [Col. 0951] For *contristari*, “to be grieved,” 2 has active *contristare*, “to grieve.” Printed reading: contristare 2.]
+
+[Note: [Col. 0951] *Decuit*, “it was fitting,” is absent from 3. Printed reading: deest 3.]
+
+[Note: [Col. 0951] For *sua*, “their own things/interests,” 3 has *tua*, “your things/interests.” Printed reading: tua 3.]
+
+[Note: [Col. 0951] 3 adds *Non istud est sapere*, “This is not wisdom,” and omits what the apparatus prints as *ne fortes* (the main text has *ne forte*, “lest perhaps”). Printed reading: Non istud est sapere add. 3. (deest ne fortes).]
+
+[Note: [Col. 0951] 3 adds *tectum*, “roof/shelter,” after *Cogita*, “consider”; the resulting wording is defective. Printed reading: tectum add. 3.]
+
+[Note: [Col. 0951] For *fecit*, “he did,” L has *fecisti*, “you did.” Printed reading: fecisti L.]
 
 ### 19.
 
-With these words and others like them, Lord Bruno, a good man skilled in speaking, concluded his appeal, being deeply concerned for the salvation of the most excellent young man. But the other, as though Erinnys had stirred his mind to the wickedness he had undertaken, would not allow his heart’s ear to attend to such admonitions; he approached them only with his external hearing, lest he appear too insolent.
+[Col. 0953A] With these words and others like them, Lord Bruno, a good man skilled in speaking, concluded his appeal, being deeply concerned for the salvation of the most excellent young man. But the other, as though Erinnys had stirred his mind to the wickedness he had undertaken, would not allow his heart’s ear to attend to such admonitions; he approached them only with his external hearing, lest he appear too insolent.
 
-For he considered it more honorable to seem innocent of the misery of this dissension than actually to be so. Anxiety and fear were stirred in his youthful mind by his most elegant companions, who, had they not been infected with the contagion of that impious conspiracy, could have been ornaments and a source of delight to imperial dignity. Surely such a desirable and strong-handed man, such an outstanding offspring, deserved to be escorted by such a procession and to glory in this chosen excellence of young men.
+For he considered it more honorable to seem innocent of the misery of this dissension than actually to be so. Anxiety and fear were stirred in his youthful mind by his most elegant companions, who, had they not been infected with the contagion of that impious conspiracy, could have been ornaments and a source of delight to imperial dignity. Surely such a desirable and strong-handed man, such an outstanding offspring, deserved to be escorted by such a procession and to glory in this [Col. 0953B] chosen excellence of young men.
 
 Above all, there was in his mind a certain stimulus: Cuono, previously a most courageous leader but then the boldest of brigands. There was also the glory of wealth and power, as they themselves boasted; but in truth there was sterile labor in place of tranquility and constant anxious care in place of security. They made the man who, so to speak, had everything in his hands, by his efforts to possess more, accomplish in every way that he possessed nothing.
 
-Meanwhile, they strove by every means, by deception no less than by force; they rested neither by day nor by night; they made their opponents suspicious of one another; they left nothing unattempted and considered nothing too costly, provided they could obtain possession, by whatever ingenuity, of the greatest and wealthiest cities within the kingdom. From there, they supposed, they could easily rule throughout all the borders of the kingdom.
+Meanwhile, they strove by every means, by deception no less than by force; they rested neither by day nor by night; they made their opponents suspicious of one another; they left nothing unattempted and considered nothing too costly, provided they could obtain possession, by whatever ingenuity, of the greatest and wealthiest cities within the kingdom. From there, they supposed, they could easily [Col. 0953C] rule throughout all the borders of the kingdom.
 
-And so that nothing might be done entirely without fraud, they dealt secretly with Arnold, an especially energetic man who at that time had been entrusted with supreme authority in the land of the Bavarians. By endless promises and by recalling the old hatred, they induced him first to renounce his allegiance to Duke Henry, then the distinguished city of Regensburg, and finally that whole kingdom, through perjury.
-
-[Note: [Col. 0953] Witnesses 1 and 2 read *erinis* for *Erinnis* (“Erinys”); all three read *acceptum* for *coeptum* (“undertaken”); witness 2 has *tabe* for *tabo* (“contagion”); witnesses 2 and 3 add an uncertain abbreviated reading after *possent*; witness 3 has *ut neque* for *neque*, *adversarios interdum* for *adversarios inter se*, and *impetraturos* (“to obtain”) for *imperaturos* (“to rule”).
-
-[Note: [Col. 0953D] “Count palatine, to whom Henry had entrusted Bavaria.” See *Life of Ulrich*, chapter 10. Witness 2 reads *secretas* (“secret things”) rather than *secretius* (“more secretly”). Witness 3 supplies *Regensburg* in the margin.]
+And so that nothing might be done entirely without fraud, they dealt secretly with Arnold, an especially energetic man who at that time had been entrusted with supreme authority in the land of the Bavarians. By endless promises and by recalling the old hatred, they induced him to renounce Duke Henry’s authority by perjury—first over himself, then over the distinguished city, and finally over that whole kingdom.
 
 Such strength did envy and hatred claim for themselves among them. At the same time they urged on the Hungarians, the ancient plague of their homeland, to invade the kingdom divided against itself, supposing that in this way the anxiety weighing upon them could either be entirely removed or at least diminished.
 
+[Note: [Col. 0953] For *Erinnis*, “Erinys,” 1 and 2 have the spelling *erinis*. Printed reading: erinis 1. 2.]
+
+[Note: [Col. 0953] For *coeptum*, “begun,” 1, 2, 3 have *acceptum*, “undertaken/accepted.” Printed reading: acceptum 1. 2. 3.]
+
+[Note: [Col. 0953] For *tabo*, “corruption/contagion,” 2 has *tabe*, an equivalent noun in the ablative. Printed reading: tabe 2.]
+
+[Note: [Col. 0953] At *possent*, “they could,” 2 and 3 read the abbreviated sequence *p. etiam i.*: *possent etiam imperatoriae*, “could also [be ...] to imperial [dignity].” Printed reading: p. etiam i. 2. 3.]
+
+[Note: [Col. 0953] For *neque*, “neither/nor,” 3 has *ut neque*, “so that neither.” Printed reading: ut neque 3.]
+
+[Note: [Col. 0953] For *adversarios inter se*, “their opponents among themselves,” 3 has *adversarios interdum*, “their opponents sometimes.” Printed reading: a. interdum 3.]
+
+[Note: [Col. 0953] For *imperaturos*, “going to rule,” 1 has *impetraturos*, “going to obtain.” Printed reading: impetraturos 1.]
+
+[Note: [Col. 0953D] Arnold was count palatine, to whom Henry had entrusted Bavaria. *Life of Ulrich*, chapter 10. Printed reading: Comes palatinus, cui Heinricus Bafoariam commendaverat. Vita Udalrici, c. 10.]
+
+[Note: [Col. 0953] For *secretius*, “more secretly,” 2 has *secretas*, “secret,” a feminine plural form. Printed reading: secretas 2.]
+
+[Note: [Col. 0953] For *deinde urbem*, “then the city,” 3 has the abbreviated reading *d. Regenesburgh u.*, “then the city of Regensburg.” Printed reading: d. Regenesburgh u. 3.]
+
+[Note: [Col. 0953] *Sibi*, “for themselves,” is absent from 3. Printed reading: deest. 3.]
+
 ### 20.
 
-[Note: [Col. 0953] Witness 1 reads *imputa* for *ut puta* (“as though”); witness 3 has *et* and omits *castris* (“camp”) in the phrase concerning departure from the camp.]
-
-Moved by this matter, so sudden and unexpected, and grieving more for their misery than for his own loss, the emperor at last abandoned the siege of Mainz after accepting the agreement that was offered. He arranged to depart hastily from the camp toward the east with those whom he had found faithful, in order to attend to the affairs of those regions. He sent his brother Bruno westward as guardian and administrator—or, to speak more precisely, as archduke—in so perilous a time. He gave him these instructions:
+[Col. 0953D] Moved by this matter, so sudden and unexpected, and grieving more for their misery than for his own loss, the emperor at last abandoned the siege of Mainz after accepting the agreement that was offered. He arranged to depart hastily from the camp toward the east with [Col. 0954A] those whom he had found faithful, in order to attend to the affairs of those regions. He sent his brother Bruno westward as guardian and administrator—or, so to speak, as archduke—in so perilous a time. He gave him these instructions:
 
 > “I cannot tell you, dearest brother, how much I rejoice that we have always thought alike and that our desires have never differed in any matter. This is what consoles me most amid my bitter circumstances: to see that, by the grace of Almighty God, royal priesthood has been added to our imperial authority.
 >
-> “In you both priestly religion and royal courage are powerful, so that you know how to give each person his due, which is justice, and are able to resist either the terror or the fraud of our adversaries, which belongs to courage and justice.
+> “In you both priestly religion and royal courage are powerful, so that you know how to give each person his due, which is justice, and are able to resist either the terror or the fraud of our adversaries, [Col. 0954B] which belongs to courage and justice.
 >
-> “Nor, as I have long understood, is the mother of the liberal arts—and philosophy, the true virtue—absent from you; she has trained you to this modesty and greatness of spirit. I know, my brother, I know that no one will persuade your prudence that it is irrelevant to you how much the wicked exult in the ruin of the good, no matter with what verbal show of honesty they conceal what they intend.
+> “Nor, as I have long understood, is the mother of the liberal arts, and truly the excellence of philosophy,absent from you; she has trained you to this modesty and greatness of spirit. I know, my brother, I know that no one will persuade your prudence that it is irrelevant to you how much the wicked exult in the ruin of the good, no matter with what verbal show of honesty they conceal what they intend.
 >
-> “Perhaps they will say that these matters must be settled by wars, that they do not concern you, and that they do not suit the dignity of your office. You see how many the deceitful boastfulness of such words has led astray in this metropolis, and how many it has incited to the frenzy of civil disaster. If its bishop wished to withdraw from dissension, as he pretends, and from the danger of wars, so that he might live in religious leisure, he would certainly have returned to us and to our commonwealth, rather than to the enemies, what we had bestowed upon him through royal munificence.
+> “Perhaps they will say that these matters must be settled by wars, that they do not concern you, and that they do not suit the dignity of your office. You see how many people the bishop of this metropolis has led astray through such deceitful verbal boasting, and how many he has incited to the frenzy of civil disaster. If he wished to withdraw from dissension, as he pretends, and from the danger of wars, [Col. 0954C] so that he might live in religious leisure, he would certainly have returned to us and to our commonwealth, rather than to the enemies, what we had bestowed upon him through royal munificence.
 >
 > “I call them enemies, as nearly everyone regards them: wicked brigands among the citizens, traitors to their homeland, devastators of the kingdom, and deserters from military service. They wished to kill me myself, I believe, with their sacrilegious hands, or to have me perish by whatever most bitter form of death; they have taken my son from me and strive to deprive my brother of the kingdom, his children, his very dear wife, and finally life itself.
 >
-> “You alone are at last my solid, faithful, and steadfast consolation. From your earliest age you have advanced so far in good deeds that doing good and surveying everything with the greatest diligence have now, through habit, become part of your nature. If, while you are safe, I may enjoy you happily and wholly, as my mind always desires, my longing demands, and my spirit implores, then dignity, glory, and honor will be present. We have protection enough and more than enough; let us not fail ourselves!
+> “You alone are at last my solid, faithful, and steadfast consolation. From your earliest age you have advanced so far in good deeds that doing good and surveying everything with the greatest diligence have now, through habit, [Col. 0954D] become part of your nature. If, while you are safe, I may enjoy you happily and wholly, as my mind always desires, my longing demands, and my spirit implores, then dignity, glory, and honor will be present. We have protection enough and more than enough; let us not fail ourselves!
 >
-> “This above all must be carefully guarded. You are my witness—yes, you—that with what care and benevolence I fostered, protected, and embraced these men whom I now endure as so cruel, though I would still most willingly heal them if they were willing to spare themselves. Ah, with what unreasonable haste they rush toward destruction and turn my innocently raised offspring toward every crime! Thus it is exceedingly difficult for those who, through ambition, prefer not to be good but to be seen as good, to exercise restraint in positions of power.
+> “[Col. 0955A] This above all must be carefully guarded. You are my witness—yes, you—that with what care and benevolence I fostered, protected, and embraced these men whom I now endure as so cruel, though I would still most willingly heal them if they were willing to spare themselves. Ah, with what unreasonable haste they rush toward destruction and turn my innocently raised offspring toward every crime! Thus it is exceedingly difficult for those who, through ambition, prefer not to be good but to be seen as good, to exercise restraint in positions of power.
 >
-> “You know, dearest brother—something I recall with grief—that those whom I had more generously supported, whom I had loved as my closest allies in many circumstances, and whom I had regarded as most closely joined to me, were often harsher and more faithless toward me. This was grievous to endure, a double misery. But what presses upon me outweighs the earlier evils: the one whom I fathered has been snatched from me and has learned to lie in wait for paternal devotion.
+> “You know, dearest brother—something I recall with grief—that those whom I had more generously supported, whom I had loved as my closest allies in many circumstances, and whom I had regarded as most closely joined to me, were often harsher and more faithless toward me. [Col. 0955B] This was grievous to endure, a double misery. But what presses upon me outweighs the earlier evils: the one whom I fathered has been snatched from me and has learned to lie in wait for paternal devotion.
 >
 > “Strive, therefore, man devoted to God—not merely as before, but now above all. Strive, I beg you, by that counsel in which you are especially skilled, so that according to place and time you may either dissuade them from arms or restrain them by whatever means you can. Though absent from you in body, wherever I may be I shall rejoice in you and give thanks for your foresight and moderation. May I be pleased to reckon as mine whatever you do, and may you likewise be pleased with whatever I do.
 >
-> “I wish and earnestly desire that the sum of our hopes and our delight may be this: not only before God but also before human beings, that we provide one another with the good things that are, and, if possible, maintain peace with everyone.”
+> “I wish and earnestly desire that the sum of our hopes and our delight may be this: not only before God but also before human beings, [Col. 0955C] that we provide one another with the good things that are, and, if possible, [Col. 0956A] maintain peace with everyone.”
 
-Then, after they had fallen into one another’s arms, they parted from each other with tears: the emperor turning eastward and his brother westward.
+Then, after they had rushed to kiss one another, they parted from each other with tears: the emperor turning eastward and his brother westward.
 
-[Note: [Col. 0953] Witness 2 adds *rebus* (“circumstances”) after *acerbis* (“bitter”). Witness 3 omits *quantos seduxit* (“how many it led astray”); the marginal identification of the metropolitan’s bishop is “Frederick of Mainz.” Witness 1 has *arcium* for *artium* (“arts”) and *uirtutum* (“virtues”) for *uirtutem* (“virtue”). Leibniz prefers *constantiae* (“steadfastness”) to *fortitudinis* or *justitiae* in the phrase concerning resistance to adversaries. Witnesses 1 and 2 read *vellent* (“they would wish”) rather than *velent* (“they conceal”). Witness 3 supplies the fuller phrase *r. v. m. d.*, “traitors to their homeland, devastators of the kingdom, deserters from military service.” Witness 2 has *fratrum* (“brothers”) and witness 3 *fratre* (“brother”) in place of *fratrem*. Witness 3 reads *artibus* (“arts”) rather than *actibus* (“deeds”). Witnesses 1 and 2 read *veniret* (“would come”) rather than *venerit* (“has come”). Witness 3 has *magnis* (“great”) rather than *magis* (“more”). Witness 3 reads *existimavi* (“I judged”) rather than *aestimavi* (“I regarded”). Witness 3 has *perpessum* (“suffered”) rather than *perpessu* (“to be endured”). Witness 3 reads *identidem* (“repeatedly”) rather than *itidem* (“likewise”).]
+[Note: [Col. 0953] For *ut puta*, “as you may suppose,” 1 has *imputa*, “reckon/impute.” Printed reading: imputa 1.]
+
+[Note: [Col. 0953] For *e*, “from,” 3 has *et*, “and,” and omits *castris*, “camp.” Printed reading: et (deest castris) 3.]
+
+[Note: [Col. 0953] After *acerbis meis*, “my bitter [circumstances],” 2 and 3 add *rebus*, “circumstances.” Printed reading: addunt rebus 2. 3.]
+
+[Note: [Col. 0953] At *justitiae*, “justice,” Leibniz prefers *constantiae*, “steadfastness.” Printed reading: constantiae praefert Leibnitius.]
+
+[Note: [Col. 0953] For *artium*, “of arts,” 1 again writes *arcium*, a spelling also meaning “of citadels.” Printed reading: arcium 1.]
+
+[Note: [Col. 0953] For *virtutem*, “excellence/virtue,” 1 has *uirtutum*, “of virtues.” Printed reading: uirtutum 1.]
+
+[Note: [Col. 0953] For *velent*, “they conceal,” 1 and 2 have *uellent*, “they would wish.” Printed reading: uellent 1. 2.]
+
+[Note: [Col. 0954D] Frederick of Mainz. Printed reading: Fredericus Moguntinus.]
+
+[Note: [Col. 0953] *Quantos seduxit*, “how many he led astray,” is absent from 3. Printed reading: q. s. desunt 3.]
+
+[Note: [Col. 0953] *Regni vastatores, militiae desertores*, “devastators of the kingdom, deserters from military service,” is absent from 3. Printed reading: r. v. m. d. desunt 3.]
+
+[Note: [Col. 0953] For accusative *fratrem*, “brother,” 2 has *fratrum*, “of brothers”; 3 has ablative *fratre*, “from/by a brother.” Printed reading: fratrum 2. fratre 3.]
+
+[Note: [Col. 0953] For *actibus*, “deeds,” 3 has *artibus*, “arts.” Printed reading: artibus 3.]
+
+[Note: [Col. 0953] For *venerit*, “has come,” 1 and 2 have *ueniret*, “would come.” Printed reading: ueniret 1. 2.]
+
+[Note: [Col. 0955] I emend thus to *Ah! quanta*, “Ah, how great!”; 1 (and perhaps 2 and 3?) has *Aliquanta*, “a certain amount of.” Printed reading: ita corrigo. Aliquanta 1. (2. 3?)]
+
+[Note: [Col. 0955] For *magis*, “more,” 1 has *magnis*, “great,” a dative or ablative plural form. Printed reading: magnis 1.]
+
+[Note: [Col. 0955] For *aestimavi*, “I considered,” 3 has *existimavi*, “I judged.” Printed reading: existimavi 3.]
+
+[Note: [Col. 0955] For *perpessu*, “to endure,” 3 has *perpessum*, “endured/to endure,” a different supine/participial form. Printed reading: perpessum 3.]
+
+[Note: [Col. 0955] At *itidem*, “likewise,” 3 has *f. identidem*: the preceding verb abbreviated, followed by “repeatedly.” Printed reading: f. identidem 3.]
 
 ### 21.
 
 He soon hastened to the palace at Aachen.
 
-[Editorial note: On the date of the election and ordination, compare the Ballerini edition of Ratherius’ works, p. LXXVII. Ratherius was elected and consecrated on the very day on which Bruno was elected and consecrated; Robert, archbishop of Trier; Balderic, bishop of Utrecht; Hildebold, bishop of Minden; Drogo, bishop of Osnabrück; Berengar, bishop of Verdun; and Fulbert, bishop of Cambrai were also present.
+There he met the princes of the kingdom concerned in the matter, instructed them in many and various ways, and urged above all that they should not trust the seducers or their empty promises, should not fear their threats, and should put no promises ahead of royal majesty and their own sworn faith. He promised that, before the time and at the time, he would always be ready—even at the risk of his own life, should this be necessary—to restore the Church’s violated peace.
 
-Ratherius relates the matter as follows in *Phrenesis*, chapter 1:
+Having done this, he came joyfully to Cologne; [Col. 0956B] the time of ordination was awaited, and the saving joy of anointing. When this had been done, the people’s joy was renewed, and, arrayed in the robe of gladness, the priest of the Lord and Saviour shone forth before all who had assembled. Thereafter precious nard gave forth its fragrance; in the midst of the Church he opened his mouth (Exod. 28:35). In accordance with the legal ordinance, the sound of one entering the house of the Lord God was heard; he became an example and instruction unto salvation for all who obeyed him.
 
-> “Driven from the episcopate of Verona in Italy, where he had been ordained, and having sought the assistance of the most glorious King Otto, although no opportunity for restoration had preceded him, and although the most pious king himself was striving to secure it, when the opportunity was granted through the intervention and accomplishment of his brother Bruno, the archbishop, after he had been sought out at the palace called Aachen in the presence of that same king—not only by those more especially concerned, but also by bishops, abbots, counts, and the leading men of the entire kingdom—on the fourth feria of the solemn fast of the seventh month, he was again elected on the following Sunday by the people of the Church of Liège. He was appointed and solemnly enthroned in that same Church by seven fellow bishops, two of whom were archbishops and the rest bishops: namely Bruno, Robert, Balderic, Hildebold, Drogo, Berengar, and Fulbert. This occurred with the assent of the decrees and with the agreement and example of certain of the ancients to whom the same thing had happened, amid the greatest favor of the entire people who were present.
->
-> “Afterward, through the ingenuity and accomplishment of the aforementioned Balderic, and through the public force of Counts Regener and Ruodolf—whose nephew, and also Balderic’s brother’s son, was a certain boy of the same name, so that it may not be difficult to conjecture what had happened, and so that the neglect of the quality of the persons may be evident in every respect—because the king’s brother was afraid that the counts mentioned might defect from the king to Conrad, who was then acting against him, and become hostile to him; or, as his defenders assert more truthfully, because the archbishop, as he had desired, could find no helper among the bishop’s friends or soldiers, he was expelled. At Mainz he enjoyed, most abundantly, the exceedingly generous kindness of Archbishop William, the king’s son.
->
-> “Having been given leisure, he took care to set down in books the events that had taken place around him, laboring to ensure that their character should not remain hidden even from the curious of his own time. When those two particular enemies of his, Robert and Balderic, heard this, they said that he was insane.”
+What he did, how he taught, and in what manner he devoted himself for the peace of God’s Churches are wonderful in the doing and difficult in the telling. For this man’s daily works so surpassed the outstanding achievements mentioned above that all he had done—[Col. 0956C] whether in enlarging or restoring churches, [Col. 0957A] in transferring relics and bodies of saints into his diocese, in constructing private or public buildings, or in ordering the affairs of the household and family of God’s holy Church—seemed almost incomparable with the works of others.
 
-[Editorial note: The phrase *plebis vel ejusmodi vocabulum deest* means, “the word *plebs* or a similar term is absent.”]
+For, as he understood beyond all his teachers, so he directed the keenness of his heart, the sharpness of his intellect, and the strength of his spirit toward greater works of wisdom and virtue. Concerning religion first and the worship of God—what the Greeks call *theosebeian* (θεοσέβειαν), “reverence for God”—following, according to the wisdom given him, canonical and apostolic authority, he established that the multitude belonging to his venerable see in its various congregations should be of one heart and one soul; that superfluity of clothing, inequality of conduct, [Col. 0957B] and whatever else of this kind seemed effeminate or unseemly in his Church should be most carefully cut away by true and spiritual circumcision, which is the beginning of wisdom; and that all concerned should live with the greatest diligence, according to the rule prescribed for them, intent upon the divine ministries, and should in no way regard anything else as the ground of their salvation.
 
-There he met the princes of the kingdom concerned in the matter, instructed them in many and various ways, and urged above all that they should not trust the seducers or their empty promises, should not fear their threats, and should prefer no pledges to their loyalty toward the royal majesty and toward himself. He promised that, before the time and at the time, he would always be ready—even at the risk of his own life, should this be necessary—to restore the Church’s violated peace.
+[Note: [Col. 0955] For *palatii*, “of the palace,” 3 has *palatium*, “palace,” in the accusative. Printed reading: palatium 3.]
 
-Having done this, he came joyfully to Cologne; the time of ordination was awaited, and the saving joy of anointing. When this had been done, the people’s joy was renewed, and, arrayed in the robe of gladness, the priest of the Lord and Saviour shone forth before all who had assembled. Thereafter precious nard gave forth its fragrance; in the midst of the Church he opened his mouth (Exod. 28:35). In accordance with the legal ordinance, the sound of one entering the house of the Lord God was heard; he became an example and instruction unto salvation for all who obeyed him.
+[Note: [Col. 0955C] For the date of the election and ordination, compare the Ballerini edition of Ratherius’s *Works*, p. LXXVII. Ratherius was elected and consecrated on the same day as Bruno. Also present were Robert, archbishop of Trier, and the bishops Balderic of Utrecht, Hildebold of Minden, Drogo of Osnabrück, Berengar of Verdun, and Fulbert of Cambrai. Ratherius narrates these events as follows in *Phrenesis*, chapter 1:
 
-What he did, how he taught, and in what manner he devoted himself for the peace of God’s Churches are wonderful in the doing and difficult in the telling. For the daily works of this man so surpassed the notable achievements of his predecessors that all he had done—whether in enlarging or restoring churches, in transferring relics and bodies of saints into his diocese, in constructing private or public buildings, or in ordering the affairs of the household and family of God’s holy Church—seemed almost incomparable with the works of others.
+“After he had been driven from the bishopric of Verona in Italy, [Col. 0955D] where he had been ordained, he sought the assistance of the most glorious King Otto. No opportunity for restoration had presented itself, despite the efforts of that most pious king himself. Given a choice through the intervention and efforts of the king’s brother, Archbishop Bruno, he was elected in Bruno’s presence at the palace called Aachen. On the Wednesday of the solemn fast of the seventh month he had been sought out not only by those particularly concerned but also by bishops, abbots, counts, and the leading men of the whole kingdom. On the following Sunday he was again elected by that same body, namely the people of the Church of Liège. Seven fellow bishops—two archbishops and the rest bishops, namely the aforesaid Bruno, Robert, Balderic, Hildebold, Drogo, Berengar, and Fulbert—appointed him to that Church and solemnly enthroned him, in accordance with the decrees and with the agreement and precedents of certain ancient men to whom the same thing had happened, amid the greatest favor of the whole [assembly] that [Col. 0956C] was present. [Col. 0955D: The word *plebis*, “of the people,” or a similar word is missing.]
 
-For, as he understood beyond all his teachers, so he directed the keenness of his heart, the sharpness of his intellect, and the strength of his spirit toward greater works of wisdom and virtue. Concerning religion first and the worship of God—what the Greeks call *theosebeian* (θεοσέβειαν), “reverence for God”—following, according to the wisdom given him, canonical and apostolic authority, he established that the multitude belonging to his venerable see in its various congregations should be of one heart and one soul; that superfluity of clothing, inequality of conduct, and whatever else of this kind seemed effeminate or unseemly in his Church should be most carefully cut away by true and spiritual circumcision, which is the beginning of wisdom; and that all concerned should live with the greatest diligence, according to the rule prescribed for them, intent upon the divine ministries, and should in no way regard anything else as the ground of their salvation.
+“Afterward he was expelled through the contrivance of the aforementioned Balderic and the actions of Robert, archbishop of Trier—who had especially praised him from the pulpit of the church at Cologne before all the assembled people—and through the public force of Counts Regener and Ruodolt. This was done so that a certain boy of the same name [Col. 0956D] might be installed: he was their nephew and the son of Balderic’s brother, so that it is not difficult to guess why such things happened. And, to make it entirely clear that the merits of the case were disregarded in favor of persons, the aforesaid king’s brother was timid: he feared that those counts might desert the king for Conrad, who was then acting against him, and join Conrad in hostility toward him. Or—as his defenders maintain, more truly—the same archbishop could find no ally among the bishop’s friends or soldiers, as he had hoped, to help him resist.
 
-[Note: [Col. 0955] Witness 3 reads *palatium* (“palace”) rather than *palatii* (“of the palace”). Witness 3 reads *terrerent* (“they should terrify”) rather than *timerent* (“they should fear”). Witness 3 reads *autem* (“however”) rather than *ante* (“before”); the manuscript omits *se* (“himself”). Witness 2 has *vel* (“or”) rather than *ut* (“so that”). Witness 1 reads *actum*, corrected to *actu* (“in the doing”). Witnesses 2 and 3 read *in privatis* (“in private [buildings]”) for *in privatis vel publicis* (“in private or public [buildings]”). Witness 2 reads *operam* (“work”) rather than *opera* (“works”). Witness L has *superos* (“those above”) rather than *super omnes* (“beyond all”). Witness 1 reads *dilexit* (“he loved”) rather than *direxit* (“he directed”). Witness 1 has *theofebian* rather than *theosebian*. Witness 1 reads *diversi* (“different”) rather than *diversis* (“various”); witness 3 omits *hoc modo* (“in this manner”); witness 3 has *mysteriis* (“mysteries”) rather than *ministeriis* (“ministries”). L reads *diligentissime* (“most diligently”) rather than *intentissime* (“most intently”).]
+“He then enjoyed in the greatest abundance the exceedingly generous kindness of Archbishop William, the king’s son, at Mainz. Having the opportunity of leisure, he took care to set down in books what had happened to him, laboring so that the character of these events should not be hidden even from the inquisitive people of his own time. When those two particular enemies of his, Robert and Balderic, heard this, they declared that he was deranged.”]
+
+[Note: [Col. 0955] For *timerent*, “they should fear,” 3 has *terrerent*, “they should terrify.” Printed reading: terrerent 3.]
+
+[Note: [Col. 0955] For *ante*, “before,” 3 has *autem*, “however,” and omits *se*, “himself.” Printed reading: autem 3. (deest se).]
+
+[Note: [Col. 0955] For *ut*, “so that,” 2 has *vel*, “or.” Printed reading: vel 2.]
+
+[Note: [Col. 0955] In 1, *actu*, “in the doing,” is corrected to *actum*, “done,” and then corrected back to *actu*. Printed reading: actu corr. actum corr. actu 1.]
+
+[Note: [Col. 0957] At *in privatis vel publicis*, “in private or public [buildings],” 2 and 3 have *in p.*, an abbreviated reading that does not unambiguously distinguish the two p-words. Printed reading: in p. 2. 3.]
+
+[Note: [Col. 0957] For plural *opera*, “works,” 2 has singular *operam*, “work/effort.” Printed reading: operam 2.]
+
+[Note: [Col. 0957] For *super omnes*, “beyond all,” L has *superos*, “those above/the heavenly ones.” Printed reading: superos L.]
+
+[Note: [Col. 0957] For reflexive *sui*, “his own,” 2 has *ejus*, “his.” Printed reading: ejus 2.]
+
+[Note: [Col. 0957] For *direxit*, “he directed,” 1 has *dilexit*, “he loved.” Printed reading: dilexit 1.]
+
+[Note: [Col. 0957] For *theosebian*, the transliterated Greek meaning “reverence for God,” 1 has the spelling *theofebian*. Printed reading: theofebian 1.]
+
+[Note: [Col. 0957] For *diversis*, “various,” in the ablative plural, 1 has *diversi*, a different inflection. Printed reading: diversi 1.]
+
+[Note: [Col. 0957] *Hoc modo*, “in this manner,” is absent from 3. Printed reading: h. m. desunt 3.]
+
+[Note: [Col. 0957] For *ministeriis*, “ministries/services,” 3 has *mysteriis*, “mysteries.” Printed reading: mysteriis 3.]
+
+[Note: [Col. 0957] For *intentissime*, “most intently,” L has *diligentissime*, “most diligently.” Printed reading: diligentissime L.]
 
 ### 22.
 
-He frequently discussed these and similar matters with the venerable fathers and the elders of his clergy, and earnestly admonished them to keep watch with him over the Lord’s flock. Because the fault of the times pressed upon him, so that he could confer with them less often than he wished, he burned with even greater solicitude when absent than when present, fervent in spirit and serving the Lord.
+He frequently discussed these and similar matters with the venerable fathers and the elders of his clergy, and earnestly admonished them to keep watch with him over the Lord’s flock. Because the fault of the times pressed upon him, so that he could confer with them less often than he wished, he burned with even greater solicitude when absent no less than when present, fervent in spirit and serving the Lord.
 
-Without were fightings, within fears. He fought against the rage of wolves desiring to lay waste God’s Church; he feared for the simplicity of the Lord’s sheep, as the Apostle says: “I fear lest, as the serpent deceived Eve by his craftiness, so your minds should be corrupted from the simplicity which is in Christ Jesus” (2 Cor. 11:3).
+[Col. 0957C] Without were fightings, within fears. He fought against the rage of wolves desiring to lay waste God’s Church; he feared for the simplicity of the Lord’s sheep, as the Apostle says: “I fear lest, as the serpent deceived Eve by his craftiness, so your minds should be corrupted from the simplicity which is in Christ Jesus” (2 Cor. 11:3).
 
 Thus, with a breast trained against every adversity, he was most steadfast; nor did such a spirit waver in prosperity. By circumstances and frequent exercises alike he taught all subject to him to be diligent in preserving the unity of the Spirit in the bond of peace. By that singular agility of mind he seemed almost to have surpassed the general maxim that, when the mind is divided among many things, it becomes less effective in each.
 
-Therefore, compelled by imperial authority, he undertook, as has been said, the administration of the kingdom’s affairs among the Lotharians. Although he assigned to every prince and magistrate his own burden and enjoined on each the work suited to him, there was nevertheless nothing that he did not himself attend to, foreseeing with the greatest quickness of counsel what was advantageous for all.
+Therefore, compelled by imperial authority, he undertook, as has been said, [Col. 0957D] the administration of the kingdom’s affairs among the Lotharians. Although he assigned to every prince and magistrate his own burden and enjoined on each the work suited to him, there was nevertheless nothing that he did not himself attend to, foreseeing with the greatest quickness of counsel what was advantageous for all.
 
-[Note: [Col. 0957] Witness 1 reads *fruens* (“enjoying”) rather than *fervens* (“fervent”); witnesses 2 and 3 read *foris* (“outside”) rather than *foras* (“without”). Witness 3 omits *cogente* (“compelling”). Witnesses 2 and 3 have *Lotharicos* (“Lotharian”) rather than *apud Lotharios* (“among the Lotharians”). Witness 3 omits the phrase concerning the distribution of burdens and assignments of suitable tasks.]
+[Note: [Col. 0957] For *fervens*, “fervent/burning,” 1 has *fruens*, “enjoying.” Printed reading: fruens 1.]
+
+[Note: [Col. 0957] For *foras*, “outside/outward,” 2 and 3 have *foris*, “outside,” expressing location. Printed reading: foris 2. 3.]
+
+[Note: [Col. 0957] *Igitur*, “therefore,” is absent from 3. Printed reading: deest 3.]
+
+[Note: [Col. 0957] For *Lotharios*, “the Lotharians,” 2 and 3 have *lotharicos*, “Lotharian [people].” Printed reading: lotharicos 2. 3.]
+
+[Note: [Col. 0957] 3 omits *onus, unicuique sibi congruum imperaret*, “burden, [and] enjoined on each what suited him,” recorded by the abbreviation *o. u. s. c. i.* Printed reading: o. u. s. c. i. desunt 3.]
 
 ### 23.
 
-Perhaps some, ignorant of the divine dispensation, ask why a bishop administered public affairs and the dangers of war when he had undertaken the care of souls alone. The thing itself readily answers them, if they have any sound judgment, when they see the great and, especially in those regions, unprecedented good of peace spread far and wide through this guardian and teacher of the faithful people—lest in this matter they stumble any longer as though in darkness, where the presence of light is absent.
+Perhaps some, ignorant of the divine dispensation, ask [Col. 0958A] why a bishop administered public affairs and the dangers of war when he had undertaken the care of souls alone. The thing itself readily answers them, if they have any sound judgment, when they see the great and, especially in those regions, unprecedented good of peace spread far and wide through this guardian and teacher of the faithful people—lest in this matter they stumble any longer as though in darkness, where the presence of light is absent.
 
 Nor was such governance of this world new, or previously unfamiliar to the rulers of God’s holy Church; examples are ready to hand for anyone who seeks them.
 
-[Note: [Col. 0957] Witness 3 reads *hujusmodi* (“of this kind”) for *hujus mundi* (“of this world”), and *si quesierit* (“if he seeks”) rather than *si quis requisierit* (“if anyone should seek”). Witness 2 adds *hic* (“here”). It also inserts the following gloss: “Let no one therefore call him blameworthy on this matter, since we read that holy Samuel and many other priests were likewise judges, and that we read that the prophet Daniel condemned two priests to death.” This gloss is partly drawn from Widukind I.31 and was inserted into the text by witness 2 in its usual manner.]
-
-But, hastening to other matters, we leave to each man’s own judgment what he may say about this pious man, knowing that no one is of sound mind who attempts to obscure a most evident good with any reproach of slander. For everything that he did was honorable and beneficial to our commonwealth.
+But, hastening to other matters, we leave to each man’s own judgment what he may say about this pious man, knowing that no one is of sound mind who attempts to obscure a most evident good with any reproach of slander. [Col. 0958B] For everything that he did was honorable and beneficial to our commonwealth.
 
 Yet he did not set this end upon his deeds, that they should fly abroad only by winning favor through human mouths; rather, he lived and ordered his works before human beings so that he was a terror to the worst and an honor to the good. By these things it became plainly known to all that in the episcopate he had desired a good work, for which even his envious rivals could not easily blame him—unless it should redound still more to his praise that he displeased such people.
 
 Held fast, therefore, in this wonderful work, the ever-watchful laborer of the highest householder and supreme bishop, bearing in his hands a burning lamp—that is, the example of good work—led the willing and drew the unwilling toward the things of God.
 
-[Note: [Col. 0957] Witness 1 reads *offendit* (“he stumbles”) and witness 2 *offendunt* (“they stumble”) rather than *offendant* (“they may stumble”). Witness 1 has *uelle*, corrected to *utile* (“useful”); witness 2 also reads *velle*.]
+[Note: [Col. 0957] For *offendant*, “they may stumble,” 1 has *offendit*, “he stumbles”; 2, *offendunt*, “they stumble.” Printed reading: offendit 1. offendunt 2.]
+
+[Note: [Col. 0957] For *hujus mundi*, “of this world,” 3 has *hujusmodi*, “of this kind.” Printed reading: hujusmodi 3.]
+
+[Note: [Col. 0957] For *si quis requisierit*, “if anyone should seek,” 3 has *si quesierit*, “if he should seek.” Printed reading: si quesierit 3.]
+
+[Note: [Col. 0957] Here 2 adds: “Let no one therefore call him blameworthy in this matter, since we read that holy Samuel and many others were both priests and judges, and we read that the prophet Daniel condemned two priests to death.” But this is a gloss drawn partly from Widukind I.31, which 2 has admitted into the text in its customary manner. Printed reading: hic 2. addit: Nemo igitur super hac re culpabilem eum dicat, cum Samuelem sanctum et alios plures sacerdotes pariter legamus et judices, et Danielem prophetam duos sacerdotes ad mortem dampnasse legamus. Sed hoc glossema est partim ex Widukindo I, 31. haustum, quod 2. solito more in textum recepit.]
+
+[Note: [Col. 0957] For *quisque*, “each person,” 3 has *quis*, “someone.” Printed reading: quis 3.]
+
+[Note: [Col. 0957] In 1, *uelle*, “to wish,” is corrected to *utile*, “useful”; 2 has *uelle*. Printed reading: uelle corr. utile 1. uelle 2.]
 
 ### 24. (954)
 
-But amid these things the ancient plague of the human race did not cease to scatter far and wide the poison of its envy against the works of the pious teacher, now germinating in good hope. For when at last the people of the Lotharian kingdom, scarcely induced by the manifold exhortation of this great man, began to try the charms of peace, wholly unfamiliar to them, and for the most part refused, to their own destruction, to give assent to those who promised themselves security only through civil discord, the savage nation of the Hungarians—barbarity such as our land had never felt—enticed by perverse citizens, crossed most of Germany’s provinces and poured itself over the whole of Gaul, where the noble people of the Franks had long since settled, intending to lay everything waste with sword and fire.
+[Col. 0958C] But amid these things the ancient plague of the human race did not cease to scatter far and wide the poison of its envy against the works of the pious teacher, now germinating in good hope. For when at last the people of the Lotharian kingdom, scarcely induced by the manifold exhortation of this great man, began to try the charms of peace, wholly unfamiliar to them, and for the most part refused to give a consent that would destroy them to those who promised themselves security only through civil discord, the savage nation of the Hungarians—barbarity such as our land had never felt—enticed by perverse citizens, crossed most of Germany’s provinces and poured itself over the whole of Gaul, where the noble people of the Franks had long since settled, intending to lay everything waste with sword and fire.
 
-In this campaign Cuono, formerly an outstanding duke, served with his followers—whether in order by this foul cruelty to satisfy his hatred, conceived against Bruno, the man of God, certainly most gentle toward the good, or to help whomsoever he could in so great a danger, is uncertain; but the former account was more widely circulated.
+In this campaign Cuono, formerly an outstanding duke, [Col. 0958D] served with his followers—whether in order by this foul cruelty to satisfy his hatred, conceived against Bruno, the man of God, certainly most gentle toward the good, or to help whomsoever he could in so great a danger, is uncertain; but the former account was more widely circulated.
 
-For even before this, because his strength had failed him, he had deceitfully attempted every harsh measure against Bruno: he tried to seize the very wealthy city of Metz by stratagem, made himself suspect to Cologne itself and to the other fortifications of the kingdom, hurled reproaches, and poured out threats. For some time afterward he persisted in the same ferocity in which he had long been.
+For even before this, because his strength had failed him, he had deceitfully attempted every harsh measure against Bruno: [Col. 0959A] he seized the very wealthy city of Metz by stratagem, made himself suspect to Cologne itself and to the other fortifications of the kingdom, hurled reproaches, and poured out threats. For some time afterward he persisted in the same ferocity in which he had long been.
 
 He left nothing unattempted by which he thought that he could dissolve the compact made among our people through the wisdom of their teacher. A short time before he had been a man of the greatest power and the greatest fortune, but he did not know how he ought to use prosperity. Since, after abusing these things, he lost them, he raged against the good with excessive impatience; yet, by God’s ordering, he was always repulsed from his wicked designs, so that he deeply repented of having undertaken so great a crime with such levity.
 
-[Note: [Col. 0957] Witness 1 reads *exhortatione* (“exhortation”) rather than *exercitatione* (“exercise”); witness 3 has *hujus exercitatione* (“this man’s exercise”) and marks *indoctus* (“unlearned”). Witness 3 omits the phrase *praebere respueret* (“refused to give assent”). Witness 3 reads *Germaniae et plerisque* (“of Germany and most of”) rather than *transitis Germaniae plerisque* (“having crossed most of Germany”). Witness 1 has *pius* (“pious”) rather than *prius* (“formerly”). Witness 2 reads *aliquantum* (“somewhat”) rather than *aliquantulum* (“a little”). Witness 1 has *sevit* (“he raged”) rather than *saevit*; witness 2 reads *inspexit* (“looked upon”) and witness 3 *infelix* (“unhappy”) in place of *inflexit* (“bent”).]
+[Note: [Col. 0957] For *exhortatione*, “exhortation,” 1 writes *exortatione*. 3 has *hujus exercitatione v. t. indoctus*, “by this man’s exercise/training, scarcely at last untaught,” with *v. t.* abbreviating *vix tandem*; *indoctus*, “untaught,” replaces *inductus*, “induced.” Printed reading: exortatione 1. hujus exercitatione v. t. indoctus 3.]
+
+[Note: [Col. 0957] *Praebere*, “to give,” is absent from 3. Printed reading: deest 3.]
+
+[Note: [Col. 0957] At *Germaniae plerisque provinciis*, “most provinces of Germany,” 3 has the abbreviated *G. et p. p.*, “of Germany and most provinces.” Printed reading: G. et p. p. 3.]
+
+[Note: [Col. 0957] For *prius*, “formerly,” 1 has *pius*, “pious.” Printed reading: pius 1.]
+
+[Note: [Col. 0959] For *aliquantulum*, “a little,” 2 and 3 have *aliquantum*, “somewhat/a certain amount.” Printed reading: aliquantum 2. 3.]
+
+[Note: [Col. 0959] For *saeviit*, “he raged,” 1 has the spelling *seuit*. Printed reading: seuit 1.]
 
 ### 25.
 
-In all things, however, the merciful and compassionate Lord spared his priest and the pious guardian of his people, and so ordered everything that grave dangers were often calmed without war and without human destruction. Amid such things he himself, undaunted and intent upon his duties, would either read or discuss the greatest matters, as though unaware of pressing anxieties.
+[Col. 0959B] In all things, however, the merciful and compassionate Lord spared his priest and the pious guardian of his people, and so ordered everything that grave dangers were often calmed without war and without human destruction. Amid such things he himself, undaunted, would either read attentively on his own or discuss the greatest matters, as though unaware of pressing anxieties.
 
 At Trier and in Alsace this became known to nations and peoples: with what constancy and serenity of mind he reproved the unstable and reckless movements of his adversaries, when he showed that those who boasted of being most valiant in matters belonging to others were so weak in their own. Indeed, those whom no battle and no hardship had ever bent, the piety of this man made unwarlike and timid.
 
-He was to be feared for counsel and a multitude of good men, not for cruelty; and no enemy kept such keen watch for destruction as he did for salvation. He was moved least of all by reputation and the judgment of the crowd; he exercised his own judgment, and in whatever he found right he sought to please not himself but God.
+He was to be feared for counsel and a multitude of good men, [Col. 0959C] not for cruelty; and no enemy kept such keen watch for destruction as he did for salvation. He was moved least of all by reputation and the judgment of the crowd; he exercised his own judgment, and in whatever he found right he sought to please not himself but God.
 
 Thus—to comprehend much in few words and omit more—an indefatigable soldier of the Lord within and without, at home and in warfare, he contended, more by the strength of his spirit than of his body, against the pestilent and restless, and often at the peril even of his own life, until the fame of his name, wherever it reached, calmed wars, established peace, strengthened zeal in every good art, and enlarged the grace of holy religion and saving tranquillity.
 
-[Note: [Col. 0959] Witness 1 reads *pacis* (“of peace”) for *paucis* (“in few words”).]
+[Note: [Col. 0959] For *inflexit*, “bent,” 2 has *inspexit*, “looked upon”; 3, *infelix*, “unhappy.” Printed reading: inspexit 2. infelix 3.]
 
----
-
-### Source-order apparatus register
-
-All 97 notes in the supplied source follow in source order. The lemma is the immediately preceding printed wording; exact sigla, abbreviations, spellings, omissions, and editorial qualifications are retained before their English explanation.
-
-- **N1 · Col. 0949 · after `laeta prolem suam, maternis eatenus`:** source note: cathenis 2. sed corr. — Witness 2 reads *cathenis* (“chains”); *sed* (“but”) is marked as corrected.
-- **N2 · Col. 0949 · after `Deo simul universi clamore, quo`:** source note: Qua quis ei. 3. — Witness 3 reads *qua quis ei* instead of *quo quisque poterat* (“as much as each was able”).
-- **N3 · Col. 0949 · after `in saecularibus, ornanda in spiritualibus`:** source note: muniendo scilicet ext. ornando int. (m. in s. o. in sp. desunt) 3. — Witness 3 has “fortifying outwardly, adorning inwardly”; its abbreviated parenthesis says that “fortifying in secular matters, adorning in spiritual matters” is absent.
-- **N4 · Col. 0949 · after `ardere desiderio multis modis perspicaciter`:** source note: specialiter 2. 3. — Witnesses 2 and 3 read *specialiter* (“especially”) for *perspicaciter* (“with discernment”).
-- **N5 · Col. 0949 · after `amaritudinis zelo succensi, bonarum artium`:** source note: arcium 1. — Witness 1 reads *arcium* for *artium* (“arts”).
-- **N6 · Col. 0949 · after `suis factis studia, quae nec`:** source note: deest 3. — Witness 3 omits the associated word or phrase.
-- **N7 · Col. 0949 · after `vero sequitur me,» dicit Dominus`:** source note: d. D. deest 2. — Witness 2 omits the abbreviated words *d. D.*; the abbreviation is not expanded by the note.
-- **N8 · Col. 0949 · after `Domini, erat spes quaedam Colonia`:** source note: Coloniam 2. — Witness 2 reads *Coloniam* (“Cologne,” accusative) for *Colonia*.
-- **N9 · Col. 0949 · after `opportunitatem loci terreri posse arbitrabantur`:** source note: arbitrantur 3. — Witness 3 reads *arbitrantur* (“they suppose”) for *arbitrabantur* (“they supposed”).
-- **N10 · Col. 0949 · after `multimoda impietatis commenta. Sane mentita`:** source note: inimica L. — Witness L reads *inimica* (“hostile”) for *mentita* (“lied”).
-- **N11 · Col. 0949 · after `est iniquitas sibi, ut quia`:** source note: quem 3. — Witness 3 reads *quem* (“whom”) for *quia* (“because”).
-- **N12 · Col. 0949 · after `namque et magni viri invidiam`:** source note: inuidia 1. — Witness 1 has the spelling *inuidia* for *invidia* (“envy”).
-- **N13 · Col. 0949 · after `et opulenta. Erat enim referta`:** source note: refecta. 2. sed corr. — Witness 2 reads *refecta* (“restored”), but this is corrected to *referta* (“filled”).
-- **N14 · Col. 0951 · after `inspiravit, potestatem a Deo ordinatam`:** source note: o. a deo 2. — Witness 2 has the abbreviated reading *o. a deo*, corresponding to “ordained by God.”
-- **N15 · Col. 0951 · after `devotione sequi, tutorem opum, vindicem`:** source note: vindicte 2. sed corr. — Witness 2 has *vindicte*, marked as corrected, for the form of “avenger.”
-- **N16 · Col. 0951 · after `17. (953) Novum itaque Agripinae`:** source note: Agrippine 2. 3. — Witnesses 2 and 3 read *Agrippine* for *Agripinae* (“of Agrippina/Cologne”).
-- **N17 · Col. 0951 · after `Et quoniam quidem nec inter`:** source note: in 3. — Witness 3 reads *in* (“in”) for *inter* (“among”).
-- **N18 · Col. 0951 · after `erat, hunc magis exosum habebant`:** source note: Igitur Heinricum oderant, quod regi utilis et fidus esset. — “Thus they hated Henry because he was useful and faithful to the king.”
-- **N19 · Col. 0951 · after `latrocinantis et perjurae partis odium`:** source note: odivit 3. qui falso hic novum caput incipit, sed erroris conscius ad marginem. V. posuit. — Witness 3 reads *odivit* (“he hated”) and wrongly begins a new chapter here; aware of the error, it places V in the margin.
-- **N20 · Col. 0951 · after `animum induxit, neque ab alio`:** source note: ab a. desunt 3. — Witness 3 omits abbreviated *ab a.*, that is, *ab alio* (“by another”).
-- **N21 · Col. 0951 · after `Prius tamen dura tentavit corda`:** source note: deest 3. — Witness 3 omits the associated *dura* (“hard”).
-- **N22 · Col. 0951 · after `pia sollicitudine diligentius experiretur, quid`:** source note: quod 2. — Witness 2 reads *quod* for *quid* (“what”).
-- **N23 · Col. 0951 · after `conjuratione princeps imperatoris filius Liudulfus`:** source note: liodulfus 1. ludolfus 2. — The name is *liodulfus* in witness 1 and *ludolfus* in witness 2.
-- **N24 · Col. 0951 · after `qui non solum ad conservanda`:** source note: confirmanda corr. conseruanda 1. — Witness 1 corrects *conseruanda* (“to be preserved”) to *confirmanda* (“to be strengthened”).
-- **N25 · Col. 0951 · after `XX, 21). Egregius ergo ut`:** source note: E. uero p. 3. — Witness 3 reads abbreviated *E. uero p.* for the printed opening *Egregius ergo ut*; its expansion is uncertain.
-- **N26 · Col. 0951 · after `sacerdos Domini, dolens de contemptu`:** source note: conteptu 1. — Witness 1 has the spelling *conteptu* for *contemptu* (“contempt”).
-- **N27 · Col. 0951 · after `respicis honorandam pii genitoris tui`:** source note: deest 3. — Witness 3 omits *tui* (“your”) after *genitoris* (“father”).
-- **N28 · Col. 0951 · after `tui canitiem, quem te contristari`:** source note: contristare 2. — Witness 2 reads *contristare* (“to grieve,” active infinitive) for *contristari* (“to be grieved”).
-- **N29 · Col. 0951 · after `inimicis tuis, quo contra decuit`:** source note: deest 3. — Witness 3 omits the associated *cum amicis* (“with friends”).
-- **N30 · Col. 0951 · after `non te, sed quae sua`:** source note: tua 3. — Witness 3 reads *tua* (“your”) for *sua* (“their own”).
-- **N31 · Col. 0951 · after `omnia, non rerum veritate metiuntur`:** source note: Non istud est sapere add. 3. (deest ne fortes). — Witness 3 adds “This is not wisdom”; its parenthesis says *ne fortes* is absent.
-- **N32 · Col. 0951 · after `ut possis esse Salomon. Cogita`:** source note: tectum add. 3. — Witness 3 adds *tectum* (“covered” or “roof”).
-- **N33 · Col. 0951 · after `fide firmaverit. Quare hoc fecit`:** source note: fecisti L. — Witness L reads *fecisti* (“you did”) for *fecit* (“he did”).
-- **N34 · Col. 0953 · after `vero, quasi cujus mentem Erinnis`:** source note: erinis 1. 2. — Witnesses 1 and 2 read *erinis* for *Erinnis* (“Erinys”).
-- **N35 · Col. 0953 · after `cujus mentem Erinnis ad coeptum`:** source note: acceptum 1. 2. 3. — All three witnesses read *acceptum* (“accepted”) for *coeptum* (“undertaken”).
-- **N36 · Col. 0953 · after `nisi illius impiae conjurationis tabo`:** source note: tabe 2. — Witness 2 reads *tabe* for *tabo* (“with contagion”).
-- **N37 · Col. 0953 · after `ornatus et jucunditas esse possent`:** source note: p. etiam i. 2. 3. — Witnesses 2 and 3 supply the uncertain abbreviated reading *p. etiam i.* after *possent*; it is not safely expandable.
-- **N38 · Col. 0953 · after `minus quam viribus certare, neque`:** source note: ut neque 3. — Witness 3 reads *ut neque* for *neque* (“nor”).
-- **N39 · Col. 0953 · after `noctes requiescere, adversarios inter se`:** source note: a. interdum 3. — Witness 3 has abbreviated *a. interdum*, corresponding to *adversarios interdum* (“the adversaries sometimes”), for *adversarios inter se* (“the adversaries among themselves”).
-- **N40 · Col. 0953 · after `regni finibus facile se imperaturos`:** source note: impetraturos 1. — Witness 1 reads *impetraturos* (“to obtain”) for *imperaturos* (“to rule”).
-- **N41 · Col. 0953D · after `idem tempus in Bauwariorum terra`:** source note: Comes palatinus, cui Heinricus Bafoariam commendaverat. Vita Udalrici, c. 10. — “The count palatine, to whom Henry had entrusted Bavaria”; compare the *Life of Ulrich*, chapter 10.
-- **N42 · Col. 0953 · after `Bauwariorum terra commissa fuit, secretius`:** source note: secretas 2. — Witness 2 reads *secretas* (“secret things,” feminine plural) for *secretius* (“more secretly”).
-- **N43 · Col. 0953 · after `egerunt, ut se primum, deinde`:** source note: d. Regenesburgh u. 3. — Witness 3 supplies abbreviated *d. Regenesburgh u.*, identifying Regensburg in the associated sequence.
-- **N44 · Col. 0953 · after `invaderent; arbitrantes, hoc modo sibi`:** source note: deest. 3. — Witness 3 omits the associated wording.
-- **N45 · Col. 0953 · after `Hac de re, ut puta`:** source note: imputa 1. — Witness 1 reads *imputa* for *ut puta* (“as though” or “for example”).
-- **N46 · Col. 0953 · after `quod patebatur pacto, dimisit; e`:** source note: et (deest castris) 3. — Witness 3 adds *et* (“and”) and omits *castris* (“camp”).
-- **N47 · Col. 0953 · after `est quod in acerbis meis`:** source note: addunt rebus 2. 3. — Witnesses 2 and 3 add *rebus* (“circumstances”) after *acerbis* (“bitter”).
-- **N48 · Col. 0953 · after `quod est fortitudinis et justitiae`:** source note: constantiae praefert Leibnitius. — Leibniz prefers *constantiae* (“constancy”) in this place.
-- **N49 · Col. 0953 · after `jamdudum perpendi ipsam ingenuarum artium`:** source note: arcium 1. — Witness 1 reads *arcium* for *artium* (“arts”).
-- **N50 · Col. 0953 · after `artium matrem et vere virtutem`:** source note: uirtutum 1. — Witness 1 reads *uirtutum* (“of virtues”) for *virtutem* (“virtue”).
-- **N51 · Col. 0953 · after `quod intenderint honestate verborum velent`:** source note: uellent 1. 2. — Witnesses 1 and 2 read *uellent* (“they wished”) for *velent* (“they may veil”).
-- **N52 · Col. 0954D · after `verborum jactantia istius metropolis praesul`:** source note: Fredericus Moguntinus. — The metropolitan’s bishop is Frederick of Mainz.
-- **N53 · Col. 0953 · after `praesul , vides, quantos seduxit`:** source note: q. s. desunt 3. — Witness 3 omits abbreviated *q. s.*, corresponding to *quantos seduxit* (“how many he led astray”).
-- **N54 · Col. 0953 · after `proditores, regni vastatores, militiae desertores`:** source note: r. v. m. d. desunt 3. — Witness 3 omits abbreviated *r. v. m. d.*, corresponding to “devastators of the kingdom, deserters from military service.”
-- **N55 · Col. 0953 · after `vellent; cui filium sustulerunt, fratrem`:** source note: fratrum 2. fratre 3. — Witness 2 reads *fratrum* (“of brothers”); witness 3 reads *fratre* (“from/with a brother”) for printed *fratrem* (“brother,” object).
-- **N56 · Col. 0953 · after `ineunte aetate in bonis actibus`:** source note: artibus 3. — Witness 3 reads *artibus* (“arts”) for *actibus* (“deeds”).
-- **N57 · Col. 0953 · after `ex consuetudine in naturam venerit`:** source note: ueniret 1. 2. — Witnesses 1 and 2 read *ueniret* (“might come”) for *venerit* (“has come”).
-- **N58 · Col. 0955 · after `ipsi parcere vellent. Ah! quanta`:** source note: ita corrigo. Aliquanta 1. (2. 3?) — The editor says “thus I correct”; witness 1 reads *Aliquanta*, while the readings of 2 and 3 are queried.
-- **N59 · Col. 0955 · after `mihi frequenter duriores et magis`:** source note: magnis 1. — Witness 1 reads *magnis* (“great”) for *magis* (“more”).
-- **N60 · Col. 0955 · after `quos denique mihi conjunctissimos aestimavi`:** source note: existimavi 3. — Witness 3 reads *existimavi* (“I judged”) for *aestimavi*.
-- **N61 · Col. 0955 · after `aestimavi . Grave hoc perpessu`:** source note: perpessum 3. — Witness 3 reads *perpessum* for *perpessu* (“to endure”).
-- **N62 · Col. 0955 · after `libet quod feceris, id itidem`:** source note: f. identidem 3. — Witness 3 has abbreviated *f. identidem*, substituting *identidem* (“repeatedly”) in the associated clause.
-- **N63 · Col. 0955 · after `Moxque ad Aquas Grani palatii`:** source note: palatium 3. — Witness 3 reads *palatium* (“palace”) for *palatii* (“of the palace”).
-- **N64 · Col. 0955C · after `ad Aquas Grani palatii properavit`:** source note: De tempore electionis et ordinationis cf. Ballerinorum editionem Opp. Ratherii, p. LXXVII. Ratherius eodem die quo Bruno electus et consecratus est, praesentibus praeterea Rotberto Trevirensi archiepiscopo, Balderico Ultrajectino, Hildebaldo Mimigardevordensi, Druogone Osnabrugensi, Berengario Virdunensi, Folberto Cameracensi episcopis. Ratherius in Phrenesi haec ita narrat (c. I.): «Pulsus episcopio Veronensi Italiae, [Col. 0955D] ordinatus ubi fuerat, cum ad gloriosissimi regis se contulisset Ottonis auxilium, copiaque restitutionis praecessisset nulla, ipso quoque piissimo rege conante, data optione, interventu fratris ejus Brunonis archipraesulis atque patratu, postquam electus coram eodem ad Aquas quod dicitur Grani palatium, non solum ab his quorum intererat specialius, sed et ab episcopis, abbatibus, comitibus, totiusque regni primoribus quarta solemnis jejunii septimi mensis feria fuerat expetitus: rursum sequenti Dominica ab eodem, hoc est Leodicensis Ecclesiae populo electus, septem a coepiscopis, duo quorum fuerant archipraesules, caeteri praesules, praelibato scilicet Brunone, Rodberto, Baldrico, Hildibaldo, Druogone, Berengario, atque Folberto, conniventia decretorum, consensu atque exemplis nonnullorum, quibus et id contigerat, antiquorum, summo totius quae [Col. 0956C] aderat [ [Col. 0955D] Plebis vel ejusmodi vocabulum deest.] favore, destinatus eidem atque solemniter inthronizatus Ecclesiae; cumque postea ingenio jam fati Baldrici, patratuque, qui eum super ambonem Ecclesiae Coloniensis spectanti cuncto specialius collaudaverat populo, Rodberti Trevirorum archiepiscopi, vi publica comitum Regeneri atque Ruoduolti---nepos ipsorum, qui et filius fratris exstiterat Baldrici, talia ut quid contigerint ne difficile sit conjectari ejusdem nominis [Col. 0956D] puer quidam ut institueretur---et ut per omnia materies personarum acceptione pateat neglecta, timiditate jam dicti regis germani---ne scilicet jam fati comites a rege ad Conradum, qui tunc contra ipsum agebat, deficerent sibique cum eo inimicarentur, vel, quod verius ipsius asserunt defensores, resistendo, quia nullum habere potuit idem archiepiscopus, ut inhiaverat, ex episcopi amicis vel militibus adjutorem---fuisset expulsus, Moguntiaeque benignitate archiepiscopi Willihelmi filii regis munificentissima copiosissime frueretur: data otii occasione, curavit, quae circa eum acta fuerant, in libros digerere, qualitas elaborans ne vel curiosis lateret sui temporis. Utique hoc audientes duo illi ejus specialius inimici, Rodbertus videlicet et Baldricus, dixerunt eum phreneticum esse.» — The long editorial note compares the Ballerini edition, lists the bishops present at Ratherius’s and Bruno’s elections and consecrations, and quotes Ratherius’s *Phrenesis* on his election, enthronement, expulsion, refuge at Mainz, and enemies Robert and Balderic; all names, offices, column breaks, and the embedded lacuna are retained verbatim in the source note.
-- **N65 · Col. 0955 · after `promissis crederent, ne minas timerent`:** source note: terrerent 3. — Witness 3 reads *terrerent* (“they should terrify”) for *timerent* (“they should fear”).
-- **N66 · Col. 0955 · after `nullas praeponerent; spondens se ante`:** source note: autem 3. (deest se). — Witness 3 reads *autem* (“however”) for *ante* (“before”) and omits *se* (“himself”).
-- **N67 · Col. 0955 · after `tempore semper paratum fore, ut`:** source note: vel 2. — Witness 2 reads *vel* (“or”) for *ut* (“so that”).
-- **N68 · Col. 0955 · after `Dei se ipsum impenderit, actu`:** source note: actu corr. actum corr. actu 1. — Witness 1’s sequence records *actu*, a correction from *actum*, and again *actu* (“in the doing”).
-- **N69 · Col. 0957 · after `quod in privatis vel publicis`:** source note: in p. 2. 3. — Witnesses 2 and 3 read abbreviated *in p.*, that is, *in privatis* (“in private buildings”), omitting “or public.”
-- **N70 · Col. 0957 · after `rebus fecerat, ad aliorum opera`:** source note: operam 2. — Witness 2 reads *operam* (“work,” object) for *opera* (“works”).
-- **N71 · Col. 0957 · after `videretur. Nam sicut super omnes`:** source note: superos L. — Witness L reads *superos* (“those above”) for *super omnes* (“above all”).
-- **N72 · Col. 0957 · after `se intellexit, ita cordis sui`:** source note: ejus 2. — Witness 2 reads *ejus* (“his”) for *sui* (“his own”).
-- **N73 · Col. 0957 · after `sapientiae et virtutis opera direxit`:** source note: dilexit 1. — Witness 1 reads *dilexit* (“loved”) for *direxit* (“directed”).
-- **N74 · Col. 0957 · after `cultu Dei, quod Graeci theosebian`:** source note: theofebian 1. — Witness 1 reads *theofebian* for *theosebian*, the Greek-derived word for worship of God.
-- **N75 · Col. 0957 · after `ut multitudinis, quae in diversis`:** source note: diversi 1. — Witness 1 reads *diversi* (“different,” nominative) for *diversis* (“various,” ablative).
-- **N76 · Col. 0957 · after `inaequalitas, et quidquid hoc modo`:** source note: h. m. desunt 3. — Witness 3 omits abbreviated *h. m.*, that is, *hoc modo* (“in this way”).
-- **N77 · Col. 0957 · after `diligentissime abscideretur; ut divinis ministeriis`:** source note: mysteriis 3. — Witness 3 reads *mysteriis* (“mysteries”) for *ministeriis* (“ministries/services”).
-- **N78 · Col. 0957 · after `omnes, quorum id intererat, intentissime`:** source note: diligentissime L. — Witness L reads *diligentissime* (“most diligently”) for *intentissime* (“most intently”).
-- **N79 · Col. 0957 · after `minus quam praesens, spiritu fervens`:** source note: fruens 1. — Witness 1 reads *fruens* (“enjoying”) for *fervens* (“burning/fervent”).
-- **N80 · Col. 0957 · after `serviens aestuabat. Erant ei foras`:** source note: foris 2. 3. — Witnesses 2 and 3 read *foris* (“outside”) for *foras* (“outward”).
-- **N81 · Col. 0957 · after `minorem ad singula. Cogente igitur`:** source note: deest 3. — Witness 3 omits the associated word, *igitur* (“therefore”).
-- **N82 · Col. 0957 · after `tractare negotia regni apud Lotharios`:** source note: lotharicos 2. 3. — Witnesses 2 and 3 read *lotharicos* (“Lotharingian”) for *Lotharios* (“the Lotharingians”).
-- **N83 · Col. 0957 · after `et magistratibus suum partiretur onus`:** source note: o. u. s. c. i. desunt 3. — Witness 3 omits abbreviated *o. u. s. c. i.*; the note does not safely expand it.
-- **N84 · Col. 0957 · after `non est praesentia lucis, offendant`:** source note: offendit 1. offendunt 2. — Witness 1 reads *offendit* (“he strikes/stumbles”); witness 2 reads *offendunt* (“they strike/stumble”) for *offendant*.
-- **N85 · Col. 0957 · after `vero nova fuit hujus mundi`:** source note: hujusmodi 3. — Witness 3 reads *hujusmodi* (“of this kind”) for *hujus mundi* (“of this world”).
-- **N86 · Col. 0957 · after `cujus exempla si quis requisierit`:** source note: si quesierit 3. — Witness 3 reads *si quesierit* (“if he seeks”) for *si quis requisierit* (“if anyone should inquire”).
-- **N87 · Col. 0957 · after `requisierit , in promptu sunt`:** source note: hic 2. addit: Nemo igitur super hac re culpabilem eum dicat, cum Samuelem sanctum et alios plures sacerdotes pariter legamus et judices, et Danielem prophetam duos sacerdotes ad mortem dampnasse legamus. Sed hoc glossema est partim ex Widukindo I, 31. haustum, quod 2. solito more in textum recepit. — Witness 2 adds a gloss arguing that no one should blame him, citing Samuel, priestly judges, and Daniel’s condemnation of two priests; the editor identifies it as a gloss partly drawn from Widukind I.31 and incorporated into the text by witness 2.
-- **N88 · Col. 0957 · after `ad alia festinantes, quid quisque`:** source note: quis 3. — Witness 3 reads *quis* (“who”) for *quisque* (“each person”).
-- **N89 · Col. 0957 · after `nitatur. Honestum enim et utile`:** source note: uelle corr. utile 1. uelle 2. — Witness 1 corrects *uelle* (“to wish”) to *utile* (“useful”); witness 2 retains *uelle*.
-- **N90 · Col. 0957 · after `multimoda magni hujus viri exhortatione`:** source note: exortatione 1. hujus exercitatione v. t. indoctus 3. — Witness 1 reads *exortatione* (“exhortation”) for *exercitatione* (“exercise”); witness 3 has “by this man’s exercise” and marks *indoctus* (“unlearned”).
-- **N91 · Col. 0957 · after `perniciem ex parte plurima praebere`:** source note: deest 3. — Witness 3 omits the associated phrase *praebere respueret* (“refused to give assent”).
-- **N92 · Col. 0957 · after `perversis illecta civibus, transitis Germaniae`:** source note: G. et p. p. 3. — Witness 3 omits abbreviated *G. et p. p.*, corresponding to the source’s wording about crossing most provinces of Germany.
-- **N93 · Col. 0957 · after `hac acie Cuono, qui prius`:** source note: pius 1. — Witness 1 reads *pius* (“pious”) for *prius* (“formerly”).
-- **N94 · Col. 0959 · after `minas effunderet. Et postea aliquantulum`:** source note: aliquantum 2. 3. — Witnesses 2 and 3 read *aliquantum* (“somewhat”) for *aliquantulum* (“a little”).
-- **N95 · Col. 0959 · after `bonos ultra modum impatiens saeviit`:** source note: seuit 1. — Witness 1 has the spelling *seuit* for *saevit* (“raged”).
-- **N96 · Col. 0959 · after `nulla unquam acies, nulla inflexit`:** source note: inspexit 2. infelix 3. — Witness 2 reads *inspexit* (“looked upon”); witness 3 reads *infelix* (“unhappy”) for *inflexit* (“bent”).
-- **N97 · Col. 0959 · after `Deo placeret, optavit. Itaque---ut paucis`:** source note: pacis 1. — Witness 1 reads *pacis* (“of peace”) for *paucis* (“in few words”).
+[Note: [Col. 0959] For *paucis*, “in a few [words],” 1 has *pacis*, “of peace.” Printed reading: pacis 1.]
 
 [Col. 0959D] **26.** Since, therefore, this humble Christ-loving man (*philochristus*) [Note: [Col. 0959] *phylochristus* in 1.] and ardent emulator of the better spiritual gifts, the servant of the Lord Bruno, ought, in accordance with the dignity of his see, to be distinguished also by the privilege of the Roman see and apostolic blessing, and to be united with those who preserve the sound doctrine handed down by the blessed apostle Peter [Note: [Col. 0959] That is, “they preserved,” or “they have to, or ought to, preserve.”], in the integrity of catholic faith, in true confession, and in the inviolable truth of preaching, he sent his synodal letter through Hadamar, venerable abbot of the monastery of Fulda, to Agapitus, the pope of extraordinary holiness. In it he made known what spirit was his, and that he was a shepherd chosen from among the sheep and sent by the Lord. There he was called the harmonious fellow-citizen of the apostles, the prince [Note: [Col. 0959] Perhaps *princeps apostolorum*, “prince of the apostles,” should be read.] and propagator of the Lord’s commandments.
 
