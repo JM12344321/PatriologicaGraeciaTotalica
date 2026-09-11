@@ -7115,13 +7115,17 @@ We, for our part, continually ask divine mercy and do not cease to pray for you 
 
 [Col. 0355D] [Col. 0356D] [Note: The historical account that is reported is of almost no importance; the letter itself, together with the preceding one, could safely have been omitted, and it does not matter to know its date. Nevertheless, since in Duchesne’s new edition it is assigned an uncertain date and allowed to range over the ten years extending from 781 to 791, I have had to confine it within the two-year period extending from May 781 to May 783, when Queen Hildegard died. CENN.]
 
-[Col. 0356D] ## LXXVII. Another Letter of the Same Pope, Addressed to the Lord King Charles
+[Col. 0356D]
+
+## LXXVII. Another Letter of the Same Pope, Addressed to the Lord King Charles
 
 In it he speaks of the faith or love which Charles had promised to maintain toward blessed Peter, chief of the apostles, so that it might remain unshaken and indissoluble, and so that no crafty deceit might separate his mind from apostolic love. [Note: Panvinio’s summary (Cod. Vat. 37): “In the thirty-seventh [the thirty-seventh], he reminds him of the faith and love which he had promised to maintain toward blessed Peter, chief of the apostles, and prays that he may keep it unshaken and indissoluble [keep it inviolate], and suffer no crafty deceit to separate his mind from apostolic love. Afterwards he accuses a certain Eleutherius and Gregory, and asks that he not permit [allow] them to remain with him, but send them to Rome.” ID.]
 
 *(A.D. 783, Codex Carolinus LXXV, chronicle 76.)*
 
-[Col. 0356D] ### Summary
+[Col. 0356D]
+
+### Summary
 
 [Col. 0357A] He attacks two men of Ravenna, Eleutherius and Gregory. Although they had committed many crimes, they secretly approached Charles while concealing their crimes and sowed discord between the king and the pontiff. He asks that, after being rejected and dishonored by Charles, they be sent to Rome with his envoys, since their crimes must be investigated there. Thus Pippin’s donation, confirmed by Charles, and the right of the apostolic see in the exarchate will remain unshaken.
 
@@ -7143,13 +7147,17 @@ In it he speaks of the faith or love which Charles had promised to maintain towa
 
 [Col. 0359D] [Note: I said that those men had been deceived (letter 68, note) who, following Pagius, moved Adrian’s letter from its place because they observed that the queen’s name is silent in it; for the royal offspring were likewise not mentioned. In this letter, however, the royal offspring are mentioned while the queen is entirely omitted—a sure indication of its date, also recognized by Pagius. CENN.]
 
-[Col. 0359D] ## LXXVIII. Another Letter of the Same Pope, Addressed to the Lord King Charles
+[Col. 0359D]
+
+## LXXVIII. Another Letter of the Same Pope, Addressed to the Lord King Charles
 
 In it he speaks of the abbot of the venerable monastery of Saint Vincent, who had been falsely accused before the lord king and taken away from there, asking that Charles receive him most mercifully with a gracious countenance and a resolute spirit, since false charges had been brought against him. [Note: Panvinio’s summary (Cod. Vat. 10): “In the tenth, he intercedes for the abbot of the venerable monastery [tenth, for the abbot of the monastery] of Saint Vincent, who had been falsely accused before Charles.” CENN.]
 
 *(A.D. 783, Codex Carolinus LXXIX, chronicle 77.)*
 
-[Col. 0359B] ### Summary
+[Col. 0359B]
+
+### Summary
 
 He strongly commends to Charles Abbot Potho of Saint Vincent at the Volturno, who had been accused before him on false charges. He asks Charles to comply with the wishes of the entire community and to arrange for the restoration of the man who had been unjustly deposed.
 
@@ -7163,7 +7171,9 @@ He strongly commends to Charles Abbot Potho of Saint Vincent at the Volturno, wh
 
 [Col. 0360D] [Note: Summary from Baronius: “He indicates how he settled the dispute of the monks sent to him. And that Abbot Potho wished to travel to King Charles with ten monks, so that he might also clear himself there of the charges brought against him.” —Summary 40 of Baronius and the Centuriators. GRETS.]
 
-[Col. 0360C] ## LXXIX
+[Col. 0360C]
+
+## LXXIX
 
 *(A.D. 784, Codex Carolinus LXXII, chronicle 78.)*
 

@@ -6597,7 +6597,9 @@ Therefore we must watch with pious caution, so that whenever necessity compels u
 
 Nevertheless, let us be secure concerning the simplicity of our own eye. But if, on examining ourselves, we find that we are in the same vice as the person whom we were preparing to rebuke, let us neither rebuke nor reprimand him. Instead, let us groan together with him, and invite him not to obey us but to strive together with us. Rebukes should therefore be used rarely and only under great necessity, and even then we must insist that we serve not ourselves but God. The end is that we do nothing with a divided heart: removing from our own eye the beam of envy, malice, or pretense, so that we may be able to remove the speck from our brother’s eye.
 
-[Col. 0371A] ## THE SIXTH WEEK AFTER PENTECOST
+[Col. 0371A]
+
+## THE SIXTH WEEK AFTER PENTECOST
 
 ### LETTER OF THE BLESSED APOSTLE PETER, CHAPTER III
 
@@ -6617,7 +6619,9 @@ On the contrary, such things greatly harm those who, by accumulating punishment,
 
 “Sanctify our Lord Jesus Christ in your hearts.” What is it to sanctify the Lord in your hearts except to contemplate, with the deepest affection of the heart, the holiness of him whose glory is incomprehensible? This is our greatest defense against the snares and violence of the terrifying enemy: namely, always to contemplate how much power to conquer he is able to give to those who hope in him, whose immeasurable holiness shines forth.
 
-[Col. 0372C] ## ANOTHER EXPOSITION OF THE SAME LETTER
+[Col. 0372C]
+
+## ANOTHER EXPOSITION OF THE SAME LETTER
 
 “Be all of one mind in prayer.” The unity of the brotherhood, like an impregnable city, is not open to the snares of enemies. For, as Solomon says, holy Church has “an army set in battle array” (Song VI), which tyrants and persecutors, together with their author the devil, cannot break into. For when Christ guards it, persecution does not overcome martyrs, carnal pleasure does not overcome virgins, greed does not overcome the merciful, and ambition for temporal glory does not overcome the humble.
 
@@ -7894,7 +7898,9 @@ For if the ministry of condemnation is glory. Above he called the law’s minist
 
 Much more does the ministry of righteousness abound in glory. It truly abounds unto glory, that is, eternal glory, because righteousness justifies freely, without observance of the legal commandments.
 
-[Col. 0440C] ## THE GOSPEL OF MARK, CHAPTER VII
+[Col. 0440C]
+
+## THE GOSPEL OF MARK, CHAPTER VII
 
 [Col. 0440D] “Jesus went out from the borders of Tyre and came through Sidon to the Sea of Galilee, through the midst of the region of the Decapolis. And they brought him a deaf and mute man, and they begged him to lay his hand upon him. And taking him aside from the crowd, he put his fingers into his ears, and, spitting, touched his tongue. And looking up to heaven, he groaned and said to him: ‘Ephpheta,’ which means ‘to open.’ And immediately his ears were opened, and the bond of his tongue was loosed, and he spoke correctly. And he charged them to tell no one. But the more he charged them, the more abundantly they proclaimed it, and they were astonished beyond measure, saying: ‘He has done all things well; he makes the deaf hear and the mute speak.’”
 
