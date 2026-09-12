@@ -29066,7 +29066,497 @@ And, strangely enough, while some wish to appear and be wise according to this w
 What consistency is there in listening to Priscianus while despising the truth, which is God? For Terence, Virgil, Cicero, and the other followers of the liberal arts have earned this in their writings: that their expressions should remain undisturbed as they are—such forms as `advortite`, `diunt`, `ipsus`, `optumus`, `maxumus`, `olli`, and many similar examples. How much more, then, should the oracles of heavenly words remain within their own rule!
 
 For some, in the Gospel where it is written, “And I say to this one, ‘Go,’ and he goes; and to another (`alio`, dative singular), ‘Come,’ and he comes,” wish to correct it to `alii` (“another,” nominative singular): “And another, ‘Come,’ and he comes.” And where the holy Gospel says, “For power was going out (`exiebat`) from him and healing all,” they correct it to: “For power was going out (`exibat`) from him.” And where Zacchaeus says in the Gospel, “If I have defrauded (`defraudavi`) anyone,” they say: “If I have defrauded (`defrudavi`).”
-b4076270212444b93184f523c93fba0a3adf3adebb50e537c3bd474f975a2fae
+
+But in that offering for the dead in which we sing, “Deliver the souls of all the faithful departed from the hand of hell and from the depth of the lake,” some, with a kind of mental affectation, sing “from the depth of the lake” (*lacus*), paying insufficient attention to the fact that the noun *lacus* normally bears that form of the genitive according to both declensions, that is, the second and the fourth. In accordance with the idiom of Sacred Scripture, however, *laci* is more often used than *lacus*, especially where the deep pit, abyss, or depth of hell is indicated. Thus the prophet Isaiah, who says of himself, “And one of the Seraphim flew to me, and in his hand was a live coal which he had taken from the altar with tongs, and he touched my mouth and said: ‘Behold, this has touched your lips, and your iniquity shall be taken away, and your sin shall be cleansed,’” himself, I say, declared: “Nevertheless you shall be dragged down to hell, into the depth of the lake” (*laci*); and again: “Those who descend to the foundations of the lake,” that is, of hell. We therefore rightly judge that we ought rather to follow the authority of him whose lips were cleansed by heavenly fire than the teaching of some grammatical author. [Col. 1146B]
+
+Daniel also agrees with this meaning: “One stone was brought and placed over the mouth of the lake”; and again: “They had not yet reached the floor of the lake when the lions seized them and crushed all their bones.” We therefore ask in song that the Lord free the souls of his faithful from the depth of the lake, that is, from hell.
+
+We ought therefore to hold firmly to the sequence of Sacred Scripture and inviolably observe its tenor in all things, attending to what a certain wise man admonishes when he says: “Prudent reader, always beware of superstitious interpretation, so that you do not accommodate the Scriptures to your own understanding, but join your understanding to the Scriptures.” Therefore it must be established that we preserve, hold, and guard unchanged the sacred words of the Gospel, the oracles of the patriarchs and prophets, and the writings of the apostles, with complete faith and fitting devotion, just as they are found in authentic books; adding nothing, removing nothing, and changing nothing, if we wish to escape that threat which the Holy Spirit appears to utter near the end of the Apocalypse: “If anyone adds to these things, God will add upon him the plagues written in this book; and if anyone takes away from the words of the book of this prophecy, God will take away his share from the book of life, from the holy city, and from the things written in this book.” [Col. 1146C]
+
+Therefore, if anyone wishes to sharpen his intellect through the rules of grammatical art, let him exercise himself in the schools and, if he wishes, use Donatus and Priscian as teachers, provided that, while preserving the integrity of true interpretation, he does not refuse to maintain the honor due to the divine utterances. But enough of this. Let us now consider the remaining matters. [Col. 1146D]
+
+### 9
+
+Finally, I was unable to find in the whole sequence of Sacred Scripture where that responsory which is placed first in the antiphonary, “Looking from afar” (*Aspiciens a longe*), or that introit, “Upon the lofty throne” (*In excelso throno*), or that responsory sung concerning holy Mary, ever-Virgin, “I saw the beautiful one, like a dove, ascending above the streams of waters” (*Vidi speciosam sicut columbam ascendentem desuper rivos aquarum*), is written—unless, perhaps, there are some who say that at the beginning of the nascent Church there were many interpreters who translated Sacred Scripture from Greek into Latin, and that these texts were taken from them, before Blessed Jerome, interpreter of the divine law, translated the whole Old Testament from Hebrew into Latin and delivered a corrected edition of the Seventy Interpreters to Latin ears. [Col. 1147A]
+
+But we do not dare to prove anything from a source concerning which we possess no certainty, although blessed Jerome himself, in a sermon which he composed for Paula and Eustochium concerning the assumption of holy Mary, Mother of God, ever-Virgin, testifies that the words of this responsory are found in the Song of Songs, saying:
+
+> “With regard, certainly, to her ascent to the heavens, the contemplator of heavenly secrets follows, with much wonder at the sight, in the Song of Songs: ‘I saw,’ he says, ‘the beautiful one, like a dove, ascending above the streams of waters,’ and so forth.”
+
+But where he found those words, and whether he himself translated them, we do not know. We know for certain that, according to the edition which we possess from him, we can find them nowhere. [Col. 1147B]
+
+I am completely ignorant of where the passage sung concerning Saint Michael in that antiphon or alleluia—“The sea was shaken and the earth trembled”—where the archangel Michael descended from heaven, ought to be sought and found. The antiphon which some sing in the Church, “You are holy, says the Lord; I will multiply your number, so that you may pray for my people in this place,” is not easily found in the place where the Lord is said to have spoken these words. But since God is truth, the one who presumes to utter such things on his behalf ought to have spoken the truth, without fearing what the Lord threatens through the prophet: “Have you not seen a vain vision and spoken a lying divination? And you say, ‘The Lord says,’ when I have not spoken” (Ezekiel 13:7). [Col. 1147C]
+
+In that responsory, “Receive the Word, Virgin Mary” (*Suscipe Verbum, virgo Maria*), at the place where it is written, “You shall conceive through the ear,” and in that responsory, “It was announced by the archangel Gabriel to the Virgin Mary concerning the entrance of the King, and he entered through the shining region of the Virgin’s ear to visit the palace of the womb, and he returned through the golden gate of the Virgin,” the statement is sufficiently childish and simple—would that it were not equally un-Catholic. [Col. 1147D]
+
+For if, as they assert, she conceived immediately upon hearing the angel’s words, what do they make of the delay represented by all the sentences between the place where the angel said, “Hail, Mary, full of grace, the Lord is with you; blessed are you among women,” and the place where it is said, “When she heard this, she was troubled at his saying”; and, “Do not fear, Mary; behold, you shall conceive in your womb and bear a son, and you shall call his name Jesus. He shall be great and shall be called the Son of the Most High,” up to the place where holy Mary said to the angel, “How shall this happen, since I do not know a man?” [Col. 1148A]
+
+The angel answered her, foretelling not the present but the future: “The Holy Spirit will come upon you, and the power of the Most High will overshadow you; therefore the holy one who shall be born will be called the Son of God,” until Mary concluded in these words: “Behold the handmaid of the Lord”—not indicating but desiring it—“Let it be done to me according to your word.”
+
+These words make it sufficiently clear that no one ever could, can, or will be able to know how the Son of God entered through the womb of an untouched virgin for the salvation of the human race and came forth with the seal of holy chastity closed. For, according to Ezekiel’s prophecy, she was prefigured as that gate continually shut, accessible only to God. Through the ineffable cooperation of the Holy Spirit, the Virgin conceived the Son of God; in the unity of one person, the Virgin bore the true God and true man; and after giving birth she remained a virgin. [Col. 1148B]
+
+Therefore, in that responsory, “Receive the Word,” where we sing, “You shall conceive through the ear,” we would more correctly say, “You shall conceive in the womb.” But that text, “It was announced by the archangel Gabriel,” is rightly judged by wise men to have been rejected. Likewise, what is sung on the very holy night of the Nativity, “He descended from the heavens, sent from the citadel of the Father; he entered through the Virgin’s ear into our realm,” is deservedly rejected. In its place, in many churches of Gaul, what we have written below is sung as follows:
+
+> “The true God, begotten from the Father, descended from the heavens; he entered the Virgin’s womb, so that he might appear visible to us, clothed in the human flesh of our first parent Adam; and through the closed gate God and man, light and life, the Creator of the world, came forth.”
+>
+> **Verse:** “Like a bridegroom.” [Col. 1148C]
+
+That responsory also which is sung on that most sacred night and begins, “Holy and immaculate virginity, with what praises I should speak of you, I do not know, because the one whom the heavens could not contain you have carried in your womb,” can easily be seen to deserve just criticism. For it addresses virginity as though it were a woman, saying, “Holy and immaculate virginity,” although virginity is not a woman but a certain virtue, named from the noun *virgo*, “virgin.” And when the responsory has ended, it turns in direct address to Mary herself, saying, “Blessed are you among women, and blessed is the fruit of your womb.” The same responsory would more correctly and more Catholicly be sung as follows: [Col. 1148D]
+
+> “Holy and immaculate Virgin Mary, with what praises I should speak of you, I do not know, because the one whom the heavens could not contain you have carried in your womb.”
+>
+> **Verse:** “Blessed are you among women, and blessed is the fruit of your womb.”
+
+The antiphon sung at the vigil of that same Lord’s Nativity, “When the sun has arisen from heaven, you shall see the King of kings,” is found written in certain books as, “coming forth from the Father like a bridegroom from his bridal chamber,” although the words “from the Father” have been erased by modern copyists. For God, the Son of God, did not proceed from God the Father like a bridegroom from his bridal chamber; rather, he joined human nature to himself in the Virgin Mother, and thus proceeded from the Virgin’s womb like a bridegroom from his bridal chamber. Therefore it is more correctly sung: “You shall see the King of kings coming forth from the Mother like a bridegroom from his bridal chamber.” [Col. 1149A]
+
+### 10
+
+Now, although in an inverted order, it is appropriate to consider those antiphons which begin with the letter O in order to invite the Lord, and which proceed in the order of that same letter. For, as was established by the holy Fathers, that most desirable coming of the Lord was appointed for a period of three weeks before the Lord’s Advent; these weeks were prescribed and arranged for each day with various antiphonal chants.
+
+Three offices were also established for each of the three Sundays of those weeks. Since the same period of the Lord’s Advent ordinarily extends from the fifth day before the Kalends of December to the Nones of that month, one, two, or three days—or sometimes a whole week—remain over from the fourth week. It pleased the arranger of the antiphonary, during each night of that fourth week whenever such days remained, to compose morning praises and to arrange antiphons for inviting God at the evening praises, beginning on Sunday and extending through Friday. [Col. 1149B]
+
+The first antiphon begins, “O Wisdom, who came forth from the mouth of the Most High,” and concludes, “Come to teach us the way of prudence.” The second is “O Adonai”; the third, “O Root of Jesse”; the fourth, “O Key of David”; the fifth, “O Rising Sun, splendor of eternal light”; the sixth, “O King of the nations”; and the seventh, “O Emmanuel.” All of them end with the word “Come.”
+
+I have taken care to record these so that it might be clearly understood that these alone appear regularly and correctly to belong to the invitation of the Lord’s Advent. Let those who wish examine and understand whether those which are sung in imitation of these agree in meaning and words. [Col. 1149C]
+
+In the antiphon sung on the octave of the Lord, “A wonderful mystery is declared today,” we found written, “The natures are renewed.” I cannot help wondering what those natures are which are said to have been renewed. God, begotten from the substance of the Father before the ages, appeared among human beings as true God and true man, born in time from the substance of his mother, subsisting in two natures—that is, divine and human—and in one person.
+
+Thus we read in a certain synod held in the city of Spalatum [Hispalis]:
+
+> “Therefore, if anyone is unwilling to believe and preach that in our Lord Jesus Christ there are either two natures or one person, or if anyone is unwilling to confess that he is both God and man—that is, the incarnate Word, truly born from the Virgin Mary for our salvation—he is so condemned and shown to be foreign to the Catholic faith that he resists the sacrament of human redemption with ingratitude.” [Col. 1149D]
+
+It is therefore evident that the divine nature exists invisibly, impassibly, and immutably; it could neither be changed, restored, nor renewed. The true God, the Son of God, assumed human nature in the unity of his person, without division or mixture, and redeemed, restored, and renewed us on the wood of the cross. Consequently, renewal pertains solely to the nature of man. Therefore it could more correctly be said, “The nature is renewed”; or, as some prefer, “God, having become man, is the renewer of nature.” [Col. 1150A]
+
+That responsory, “The Holy Spirit was seen in the form of a dove, and the Father’s voice was heard: ‘This is my beloved Son, in whom I am well pleased,’” ends and concludes there. Some add, “Hear him!” But that voice was not heard at the baptism; it was uttered by the Father on the mountain, where the Lord was transfigured, and therefore it ought not to be joined to this responsory.
+
+### 11
+
+It now seems necessary to discuss something concerning the solemnity called Septuagesima, which begins at evening and, contrary to ecclesiastical custom, ends at morning prayers. For all festivals established for solemn celebration ordinarily begin with the preceding evening, proceed through the nocturnal and morning hours in the regular course of the whole day, and thus reach the second evening.
+
+This one alone, as was said above, begins at evening and scarcely reaches the morning hours. Hence it may be inferred that some, touched by the sweetness of melodious praise, established this boundary for the modulation of the alleluia. Consequently, some criticize the author of this nocturnal office because, without testimony from Sacred Scripture, he attempted to weave such a musical narrative by addressing the alleluia as though it were a person. [Col. 1150B]
+
+But we do not wish to leave unmentioned those things which we know to have been taken in some way from authentic Scriptures. For in the Book of Judges we read that someone addressed his son-in-law, who wished to depart, in these words:
+
+> “Consider that the day is declining toward sunset and drawing near to evening. Remain with me today also, spend a joyful day, and tomorrow you shall depart to go to your house.”
+
+Taking the opportunity provided by this sentence, he began to say to the alleluia as follows: “Remain with us today,” and the rest that follows.
+
+In the Book of Wisdom we read:
+
+> “O how beautiful is a chaste generation with glory! For its memory is immortal, because it is known both to God and to men. When it is present, they imitate it and desire it; when it has withdrawn, it triumphs forever crowned.”
+
+And in the same book:
+
+> “Good is the delight in the works of his hands, and unfailing nobility.”
+
+We also read in Tobit that he said to his wife concerning his son: [Col. 1150C]
+
+> “For I believe that the good angel of God accompanies him and orders well all that concerns him, so that he may return to us with joy.”
+
+We believe that the responsory, “May your years be multiplied by the Lord,” was written from the Proverbs of Solomon on the occasion of this discourse:
+
+> “Hear, my son, and receive my words, so that the years of your life may be multiplied; I shall show you the way of wisdom and lead you along the paths of righteousness.”
+
+Likewise, that responsory which we sing, “Alleluia; a good name is better than great riches,” is also found in the Proverbs of Solomon. I have not yet found the Scriptural passages from which the remaining texts, except those composed from the Psalms, can be taken. [Col. 1150D]
+
+It would therefore seem more correct to me that the singing of the alleluia itself should begin at evening on Friday, be celebrated throughout Saturday, and conclude at evening with the singing of the Alleluia in praise of the Lord. I offer this according to my own judgment, without prejudging the wisdom of others, whom I know to be devoted to the praise of God.
+
+That some wish to place in this Sunday night, which is called Septuagesima, those responsories which are arranged after the Lord’s resurrection and begin, “If I should forget you,” seems to me unreasonable. For if the author of the antiphonary had wished them to be sung there in the first place, he would certainly have written them there, rather than placing them after Easter. [Col. 1151A]
+
+In the reading taken from the Book of Ecclesiasticus, which begins, “In all things I sought rest,” one verse is found in certain books as, “Like cinnamon and balsam giving fragrance.” In others it reads, “Like cinnamon and aromatic aspaltum, I gave forth fragrance.” [Col. 1151B]
+
+That responsory, “Our salvation,” which is sung in Lent, is concluded by some as follows: “So that we may serve you securely.” But it is more correctly sung as it is found in Genesis: “May your mercy look upon us, so that we may securely serve the King.”
+
+### 12
+
+Let us now turn our style to those responsories whose verses do not agree with them at all, but differ greatly in meaning and words.
+
+To the responsory “Hail, Mary, full of grace,” they attach the verse:
+
+> “Lift up your gates, O princes, and be lifted up, you everlasting gates.”
+
+But those gates, those princes, and those everlasting gates which are commanded to be lifted up pertain more properly to other persons than to holy Mary, ever-Virgin. Since the angel said to Mary, “Hail, Mary, full of grace,” she replied in the verse by asking:
+
+> **Verse:** “How shall this happen, since I do not know a man?”
+
+And the angel answered her:
+
+> “The Holy Spirit.” [Col. 1151C]
+
+The following are examples of responsories and their verses:
+
+> **Responsory:** “Behold, the Lord will come.”
+>
+> **Verse:** “Behold, the Lord will come with power, and the kingdom, power, and authority are in his hand. Over all.”
+>
+> **Responsory:** “Jerusalem, you shall plant a vineyard.”
+>
+> **Verse:** “Rejoice, daughter of Zion; exult, Jerusalem. Arise, Zion.”
+>
+> **Responsory:** “Bethlehem, city of the Most High God.”
+>
+> **Verse:** “He shall speak peace to the nations, and he shall rule from sea to sea. And there shall be peace.”
+>
+> **Responsory:** “Receive the Word, Virgin Mary.”
+>
+> **Verse:** “You shall indeed bear a son and shall suffer no loss of virginity; you shall become pregnant and shall remain forever an untouched virgin. That she may be blessed.”
+>
+> **Responsory:** “Egypt, do not weep.”
+>
+> **Verse:** “Behold, the Lord of hosts, your God, will come in great power. To deliver.”
+>
+> **Responsory:** “The Lord shall descend like rain.”
+>
+> **Verse:** “All kings shall adore him; all nations shall serve him. He shall arise.”
+>
+> **Responsory:** “Behold, the Root of Jesse.”
+>
+> **Verse:** “The Lord shall give him the throne of David his father. And he shall be.”
+>
+> **Responsory:** “The Lord shall teach us his ways.”
+>
+> **Verse:** “Come, let us ascend to the mountain of the Lord and to the house of the God of Jacob. Because.” [Col. 1151D]
+>
+> **Responsory:** “Sound the trumpet.”
+>
+> **Verse:** “Announce it to the ends of the earth, and say to the distant islands: ‘Behold, God.’”
+>
+> **Responsory:** “Return, Virgin Israel.”
+>
+> **Verse:** “With everlasting love I have loved you; therefore I have drawn you, taking pity on you. For salvation.”
+>
+> **Responsory:** “I have sworn, says the Lord.”
+>
+> **Verse:** “My salvation is near, that it may come, and my righteousness, that it may be revealed. And the covenant.”
+>
+> **Responsory:** “Cry out with strength.”
+>
+> **Verse:** “Climb upon a high mountain, you who evangelize Zion; lift up your voice with strength. Behold, God.”
+>
+> **Responsory:** “A star shall arise from Jacob.”
+>
+> **Verse:** “All kings shall adore him; all nations shall serve him. And all shall be.”
+>
+> **Responsory:** “The Lord shall go forth.”
+>
+> **Verse:** “And he shall be exalted above all the hills, and all nations shall flow toward him. And they shall stand.” [Col. 1152A]
+>
+> **Responsory:** “The Forerunner enters on our behalf.”
+>
+> **Verse:** “He is the King of righteousness, whose generation has no end. The High Priest.”
+>
+> **Responsory:** “The nations shall see.”
+>
+> **Verse:** “And you shall be a crown of glory in the hand of the Lord and a royal diadem in the hand of your God. And he shall be called.”
+>
+> **Responsory:** “The Root of Jesse.”
+>
+> **Verse:** “Before him kings shall shut their mouths; the nations shall implore him. And he shall be.”
+>
+> **Responsory:** “Rejoice with me.”
+>
+> **Verse:** “All generations shall call me blessed. Because.”
+>
+> **Responsory:** “He is held in the bosom.”
+>
+> **Verse:** “He is carried in a mother’s arms, he who had carried his mother; the angelic princes surround him in a faithful company. Through whom.”
+>
+> **Responsory:** “They have been opened.”
+>
+> **Verse:** “For the death which the Savior deigned to suffer for all, he first returned to the Savior. And therefore.”
+>
+> **Responsory:** “Whoever conquers, I shall make him.”
+>
+> **Verse:** “To the one who conquers I shall give to eat from the tree of life, which is in the paradise of my God. And.”
+>
+> **Responsory:** “The Magi are coming.”
+>
+> **Verse:** “We saw his star in the East. And we came.”
+>
+> **Responsory:** “Almighty, worthy of adoration.”
+>
+> **Verse:** “I confess you with my lips; with my heart and with all my inward being I desire you. Because.”
+>
+> **Responsory:** “Most joyful Agatha.”
+>
+> **Verse:** “Born of the noblest ancestry, she was led joyfully to prison by a low-born person. And as if.” [Col. 1152B]
+>
+> **Responsory:** “Alleluia, while he is present.”
+>
+> **Verse:** “In his friendship there is good delight, for his memory is immortal.”
+>
+> **Responsory:** “It shall be for me.”
+>
+> **Verse:** “If I return safely to my father’s house, I shall give tithes.”
+>
+> **Responsory:** “Hear, Israel.”
+>
+> **Verse:** “Therefore observe and hear my voice, and I shall be an enemy to your enemies. And.”
+>
+> **Responsory:** “He was made a reproach.”
+>
+> **Verse:** “They spoke against me with a deceitful tongue, and surrounded me with words of hatred.”
+>
+> **Responsory:** “O Judas.”
+>
+> **Verse:** “In body only you reclined with those who were dining, while you armed your mind with the fury of envy. And of peace.”
+>
+> **Responsory:** “Jesus, rising.”
+>
+> **Verse:** “Therefore, on one of the Sabbaths, when the doors were shut where the disciples were gathered, Jesus came; Jesus stood in the midst and said to them: ‘Peace.’” [Col. 1152C]
+>
+> **Responsory:** “These are the Lamb’s.”
+>
+> **Verse:** “In the sight of the Lamb they are clothed in white robes, and palms are in their hands. Now.”
+>
+> **Responsory:** “From the mouth of the prudent.”
+>
+> **Verse:** “Wisdom rests in his heart, and prudence is on his tongue. A honeycomb.”
+>
+> **Responsory:** “He spoke.”
+>
+> **Verse:** “And he lifted me in spirit onto a great and high mountain. And I saw.”
+>
+> **Responsory:** “This is Jerusalem.”
+>
+> **Verse:** “Its gates shall not be shut by day, for there shall be no night in it. [Q.]”
+>
+> **Responsory:** “Let it not be troubled.”
+>
+> **Verse:** “I shall ask the Father, and he shall give you another Paraclete. And.”
+>
+> **Responsory:** “Before I formed you.”
+>
+> **Verse:** “I placed my words in your mouth. And before.”
+>
+> **Responsory:** “The Forerunner of the Lord.”
+>
+> **Verse:** “For this is a prophet and more than a prophet, as the Savior says. Not.”
+>
+> **Responsory:** “My servant.”
+>
+> **Verse:** “I shall free you from the hand of the wicked and rescue you from the hand of the strong.”
+>
+> **Responsory:** “O Hippolytus, if you believe.”
+>
+> **Verse:** “If,” he said, “you match deeds to words, I shall do what you urge”—to whom blessed Lawrence said: “And.”
+>
+> **Responsory:** “This is the man.”
+>
+> **Verse:** “They stretched the limbs of his body upon the gridiron; while coals were put beneath him, the levite of Christ mocked them. [Q.]” [Col. 1153A]
+>
+> **Responsory:** “In the sight of the nations.”
+>
+> **Verse:** “Sing to the Lord a new song; sing well to him with jubilation. [A.]”
+>
+> **Responsory:** “O blessed man.”
+>
+> **Verse:** “Always intent upon heaven with eyes and hands, he did not relax his unconquered spirit from prayer. [Q.]”
+>
+> **Responsory:** “O blessed Cecilia.”
+>
+> **Verse:** “Blessed are you, O virgin and glorious one, and blessed is the word of your mouth. Who.”
+>
+> **Responsory:** “Glorious virgin.”
+>
+> **Verse:** “Cecilia subdued her limbs with sackcloth and entreated God with groans. And.”
+>
+> **Responsory:** “Cecilia in sackcloth.”
+>
+> **Verse:** “Not on days, nor even as far as divine things [the reading is unclear]. Tiburtium.”
+>
+> **Responsory:** “Blessed Cecilia.”
+>
+> **Verse:** “For just as the love of God made your brother my husband, so it made you my relative. [Q.]”
+>
+> **Responsory:** “Cecilia sent me.”
+>
+> **Verse:** “Valerian, finding the poor, said: ‘Show me Saint Urban.’”
+>
+> **Responsory:** “He loved Andrew.”
+>
+> **Verse:** “The Lord chose him and made him honorable. Whom.”
+>
+> **Responsory:** “You heard, O Lord.”
+>
+> **Verse:** “O Lord, who keep covenant and mercy with your servants who walk before you with their whole heart. Blessed.” [Col. 1153B]
+>
+> **Responsory:** “Lord, if your people turn.”
+>
+> **Verse:** “If your people sin against you, and, having turned, do penance, coming to pray in this place. Deliver.”
+>
+> **Responsory:** “The beginning of wisdom.”
+>
+> **Verse:** “Love of it is the keeping of the laws, for all wisdom is fear of the Lord. Praise.”
+>
+> **Responsory:** “I ask, O Lord.”
+>
+> **Verse:** “All your judgments are righteous, and all your ways are mercy and truth. Now.”
+>
+> **Responsory:** “It is time.”
+>
+> **Verse:** “Bless God, O heavens, and confess him before all the living. And.”
+>
+> **Responsory:** “O Lord, almighty king.”
+>
+> **Verse:** “Hear, O Lord, my prayer, and turn our mourning into joy.”
+>
+> **Responsory:** “My hope is in another.”
+>
+> **Verse:** “Lord, God of heaven and earth, look upon our humility. [Q.]”
+>
+> **Responsory:** “Yours is the power.”
+>
+> **Verse:** “God, Creator of all, terrible and strong, just and merciful.”
+>
+> **Responsory:** “You, Lord of all.”
+>
+> **Verse:** “You, Lord, whose pleasure it was to receive the prayer of the humble and meek. [Con.]”
+>
+> **Responsory:** “I shall break the bonds.”
+>
+> **Verse:** “I shall return to Jerusalem in mercy; my house shall be built in it. [E.]” [Col. 1153C]
+>
+> **Responsory:** “Your wall [abbreviated *inexp.* in the source].”
+>
+> **Verse:** “Rescue us in your wonders and give glory to your name. Deliver.”
+>
+> **Responsory:** “This city.”
+>
+> **Verse:** “Let your fury, O Lord, be turned away from your people and from your holy city. Hear.”
+>
+> **Responsory:** “You who contain the heavens.”
+>
+> **Verse:** “For we do not cast our prayers before your face on the basis of our righteousnesses, but on the basis of your many mercies. Hear.” [Col. 1153D]
+
+### 13
+
+In the midst of these matters it should be known that, although certain verses agree with their responsories, they become somewhat devalued and cause weariness through the excessive frequency with which they are repeated. Such are “God shall come from Lebanon,” “from the rising of the sun,” “who rule Israel,” and many others of this kind.
+
+For this reason we have set down not only those verses which we were able to find in more corrected antiphonaries for the sake of emendation, but have also taken care to record others newly composed in place of the earlier ones.
+
+The verse belonging to the responsory which is sung, “In the sweat of your face,” begins:
+
+> **Verse:** “Because you obeyed the voice of your wife.”
+
+Some sing *plusquam me* (“more than me”), whereas it should more correctly be *plusquam meae*, that is, “You ought to have obeyed my voice more than your wife’s voice.” [Col. 1154A]
+
+The verse, “And when Reuben had gone to the well and had not found him,” is sung by some as:
+
+> “And having torn his garments…”
+
+But the conjunction *and* is superfluous there, and it is more regularly said:
+
+> “Having torn his garments, he went to his brothers and said…”
+
+One responsory still remains which seems to me not to be passed over. It begins, “While the Lord was walking in paradise,” and the following verse is attached to it:
+
+> “O Lord, I heard your report and was afraid.”
+
+It is then joined to what is found in the prophet Habakkuk:
+
+> “I considered your works and was terrified.”
+
+But the expression which follows in Genesis would be more correct:
+
+> “O Lord, I heard your report and was afraid because I was naked, and I hid myself.” [Col. 1154B]
+
+Nor should it be passed over that God sought the lost man in the breeze after midday and found him naked. At midday the sun is usually hotter, and afterward declines toward a breeze. The first man fell away from the heat of the Sun of righteousness when he did not remain in love of his Creator; he declined toward the breeze after midday when he fell into the guilt of faithlessness.
+
+But let us, fervent in divine love and always walking clothed in the wedding garment, seek the heavenly Bridegroom at midday, saying with the bride:
+
+> “Tell me where you pasture, where you lie down at midday, you whom my soul loves.”
+
+Thus, remaining in the fervor of the twofold love, may we always rejoice and celebrate with Christ. [Col. 1154C–D]
+
+[Col. 1155]
+
+## On the Consonant Diversity of the Modes
+
+*From a contemporary manuscript of Saint Gall.*
+
+Bern, by the grace of God—and, if not by merit, nevertheless by office—abbot, to his most beloved sons in Christ, Purchard and Kerung, together with the others engaged in the academy of the Lord’s schools at Reichenau: may they advance daily from virtue to virtue, so that they may be able to behold the God of gods in Zion. [Col. 1155A]
+
+Recently, urged by the persistence of your prayers to hand over to your keen diligence certain little verses composed concerning the consonant diversity of the modes for you to learn, I did not immediately turn my mind to doing so. I believed that I would provide laughter for posterity if, amid the abundant treasures of wisdom and the copious streams of divine and human literature flowing like a torrent, I, lacking all eloquence, presumed to mutter something. I was not without fear that this saying might rightly be directed against me:
+
+> “Do not carry wood into the forest, or fish into the sea.” [Col. 1155B]
+
+But, considering again that saying of the Lord which declares, “Give to the one who asks you, and do not turn away from the one who wishes to borrow from you,” I did not dare wholly refuse—not as though I were giving to those who asked, but at least as one wishing to lend. I hoped to gain no small interest if, in exchange for the chatter of a wordy little composition acquired from one source or another, I might deserve to share in the learned sobriety of your domestic eloquence.
+
+It is therefore clear that music consists of eight modes. Through them the consonances of musical modulation, which for the sake of brevity we now pass over, appear to agree with one another through a certain friendly affinity of conjunction. [Col. 1155C]
+
+Among us their names took their beginnings from the authority of their order, from the first through the eighth. Four of them—the first, third, fifth, and seventh—are called *authentic* in Greek speech, because they appear to preside over the others, namely, the second, fourth, sixth, and eighth, with a kind of authority of mastery. For *authentic* signifies “author” or “teacher.” Thus, just as the higher modes are called authentic, the lower are called *plagal*, as though they were parts proceeding from the side of the higher modes. [Col. 1155D]
+
+For this reason the mode which those instructed in this art commonly call “the first” in Latin speech is called *authentic protus*, as though “the first authoritative mode”; the second, *plagal protus*, or *plagal*, that is, “the part of protus”; the third, *authentic deuterus*, because it has the second authority; the fourth, *plagal deuterus*, or “the plagal mode of deuterus”; the fifth, *authentic tritus*, taking its name from the number three and from its authority; the sixth is subordinate to it according to the rule stated above. The seventh is called *authentic tetrardus* from its order, for *tetra* means “four.” Then comes the eighth, which is subordinate to the seventh; hence it is called *plagal tetrardus*, or “the plagal mode of tetrardus.” [Col. 1156A]
+
+The first, third, fifth, and seventh are rightly called authentic or principal, since their sound is higher and their ascent greater. Each of them, beginning from its final, can freely ascend as far as the ninth degree, while in descending it sometimes reaches the third sound adjacent to it. The lower modes, however, ascend only as far as the fifth and descend to the fourth sound.
+
+Thus the lower modes—the second, fourth, sixth, and eighth—do not wholly depart from the higher modes, as disciples do not wholly depart from their teachers. Joined to them by a neighboring sequence of sounds, they display a certain form of discipleship, since, as we noted above, their ascent is shorter and their descent lower. [Col. 1156B]
+
+Leaving aside the distinctions of the individual modes, which appear to differ slightly in certain notes according to the varying practice of teachers, we have attached to each little verse, by way of example, the principal character of its sound, both in antiphons and in responsories. We have also taken care to add further verses of the same rule belonging to introits and communions, together with their differences, since these are fewer and more certain. If it pleases your charity to append, according to your custom, the differences or definitions of the antiphons, know that this would greatly please us.
+
+For the rest, I earnestly ask for your obedience, that you receive these things with the same affection of charity with which they have been composed by me, and that, as good sons, you retain in Christ the memory of your father.
+
+Farewell. [Col. 1156C]
+
+### Seek first the kingdom of God
+
+“Glory. Of ages. Amen.” “Behold the name of the Lord.” “The angel of the Lord.” “Before they came together.” “Glory to the Father, and to the Son, and to the Holy Spirit.” “Blessed are you, Mary.”
+
+### But the second is like this
+
+“Glory. Of ages. Amen.” “Let us live justly and piously.” “O archangel.” “Jesus took him up.” “Glory to the Father, and to the Son, and to the Holy Spirit.” “Come, chosen one.”
+
+### It is the third day since these things happened
+
+“Glory. Of ages. Amen.” “Lord, you have tested me.” “Lord, hope of the saints.” “A certain lame man.” “Glory to the Father, and to the Son, and to the Holy Spirit.” “Today she was born.”
+
+### At the fourth watch he came to them
+
+“Glory. Of ages. Amen.” “I believe that I shall see.” “Go and announce.” “To the saints who are on earth.” “Glory to the Father, and to the Son, and to the Holy Spirit.” “Who is this?” [Col. 1156D]
+
+### The five wise virgins entered the wedding feast
+
+“Glory. Of ages. Amen.” “Alleluia. Whom are you seeking?” “Behold, he will come now.” “I have many more things.” “The heavens have been opened.” “Glory to the Father, and to the Son, and to the Holy Spirit.” “I beseech you, Lord.”
+
+### The sixth hour: he sat beside the well
+
+“Glory. Of ages. Amen.” “Moses built.” “Other sheep.” “Blessed be the Lord.” “Glory to the Father, and to the Son, and to the Holy Spirit.” “Blessed are you.” [Col. 1157A]
+
+### There are seven spirits before the throne of God
+
+“Glory. Of ages. Amen.” “Look toward Jerusalem.” “Wisdom built herself a house.” “This is now the third time.” “Glory to the Father, and to the Son, and to the Holy Spirit.” “Of the glorious Virgin.”
+
+### There are eight beatitudes
+
+“Glory. Of ages. Amen.” “Their angels.” “The souls of the righteous.” “Amen, amen, I say to you.” “He will destroy the wicked miserably.” “Adorn the bridal chamber.” “God helps.” “Blessed is the man who endures.” “If you apply fires.” “Glory to the Father, and to the Son, and to the Holy Spirit.” “All generations shall call me blessed.” [Col. 1157B]
+
+“Glory to the Father. Of ages. Amen.”
+
+First, O Lord, make us seek the summit of your righteousness and the light of the highest truth; we ask that we may always rejoice to you in heaven. Amen.
+
+“Drop down, O heavens.” “We have received.” “Let us rejoice.” “Of ages. Amen.” “Rejoice in the Lord.” “For they sat.” “The Lord appointed him.” “Amen.” “The Lord will give.” “Behold, the virgin.” “All have seen.” “Glory to the Father,” and so forth.
+
+“Glory. Of ages. Amen.”
+
+And the second word of the Law is mutual love, by which, Christ, you commanded us to cultivate love of God and neighbor; grant that through these precepts of twofold observance we may render what is due. Amen.
+
+“Come and show.” “Your face.” “Behold, he has come.” “Amen.” “Jerusalem.” “The word went forth.” “The Lord Jesus.” “Glory to the Father,” and so forth. [Col. 1157C]
+
+“Glory. Of ages. Amen.”
+
+On the third day we believe that you, Christ, rose and brought light to the world. O gracious one, make us also always praise your name and see you seated in the realm of the eternal homeland. Amen.
+
+“But I.” “Confession and beauty.” “Let it be filled.” “Amen.” “Blessed is the servant.” “Christ, rising again.” “Taste.” “Glory to the Father,” and so forth.
+
+“Glory. Of ages. Amen.”
+
+Christ, we humble ones confess that at the fourth watch of the night you gave heavenly consolation to your disciples. As we sing and praise you and the name of your power, grant us to know the protection of your fourfold evangelical voice. [Col. 1158A]
+
+“Be near.” “Your priests.” “The whole earth.” “Of ages. Amen.” “I have risen.” “Mercy.” “In your will.” “Amen.” “Rejoice.” “We have seen.” “I have done judgment.” “Glory to the Father.”
+
+“Glory. Of ages. Amen.”
+
 On the fifth [day/hour], O Lord, you deigned to reveal and show through the words and signs of your people that the five virgins receive you into heaven. Be pleased, we pray, Lord, to order our senses toward you. “I spoke.” “They surrounded me.” “Rejoice, Jerusalem.” “Lord, in your…” Amen. “Lord, you have been our refuge.” “My words.” “Behold God.” Amen. “Serve the Lord.” “The Lord is just.” “Mark them.” Glory to the Father, etc.
 
 [Col. 1158B]
