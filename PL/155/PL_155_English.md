@@ -3061,15 +3061,15 @@ From there Michael returned in confusion with a few men, leaving behind those wh
 
 After the third battle just mentioned had been completed, the people of Matera and Bari made a treaty with those Franks [Col. 0129A], since there was no one who could rescue them from their hands. Then, in February, the Normans and the citizens of Bari chose Argiro, also called Meli, as their prince and chief.
 
-In April Manichi descended upon Tarentum. He was also called “the master,” assembled the entire Greek army, and built a *suda*—that is, a rampart or fortress [Col. 0129D]—in the place called Tara. Then Argiri wrote to the Normans at Aversa and Melfi, and they all came, nearly seven thousand [the first witness reads *quas*, “as if”], to Mutula. Then that wicked Manichi, together with the whole host of the enemy, terrified by immense fear, fled by night and shut themselves up in Tarentum. But the Normans, standing before the landward gate and seeking battle, found no one at all who would answer them; so they plundered the entire territory of Oria [Col. 0129B] and thus returned to their own places.
+In April Manichi descended upon Tarentum. He was also called “the master,” assembled the entire Greek army, and built a *suda*—that is, a rampart or fortress [Col. 0129D]—in the place called Tara. Then Argiri wrote to the Normans at Aversa and Melfi, and they all came, nearly seven thousand [at *quasi*, “nearly/as if,” witness 1 reads *quas*, an incomplete or corrupt form], to Mutula. Then that wicked Manichi, together with the whole host of the enemy, terrified by immense fear, fled by night and shut themselves up in Tarentum. But the Normans, standing before the landward gate and seeking battle, found no one at all who would answer them; so they plundered the entire territory of Oria [Col. 0129B] and thus returned to their own places.
 
-In July the wretched inhabitants of Giovenazzo [Col. 0129D: inhabitants of the city of Giovenazzo], having made a treaty with those Greeks who were staying at Trani [one witness reads *mantibus* for *manentibus*], were besieged by the prince Argiro together with the Normans and the people of Bari. On the third day of their siege, that wretched Giovenazzo was taken by force and stripped of all its possessions; the Greeks, and others as well, were killed there. But the prince himself rescued many people, men and women, from the hands of the Normans.
+In July the wretched inhabitants of Giovenazzo [Col. 0129D identifies *Juvenatienses* as inhabitants of Giovenazzo], having made a treaty with the Greeks who were staying at Trani [for *manentibus*, “staying,” witness 1 reads the defective *mantibus*], were besieged by Prince Argiro together with the Normans and the people of Bari. On the third day of their siege, wretched Giovenazzo was taken by force and stripped of all its possessions; the Greeks and others as well were killed there [the editorial gloss explains *eo* as *ab eo*, “by him”]. But the prince rescued many men and women from the hands of the Normans.
 
-Afterwards, when the people of Trani were unwilling to inflict harm upon the people of Bari, in the last week of June the prince himself, together with the Normans and the people of Bari, besieged it for thirty-six days [one witness omits “with the Normans and the people of Bari”]. He afflicted it severely with battles and other calamities. For he had a tower constructed there out of a heap of timber such as human eyes had never seen in modern times. But Argiro, after receiving imperial letters granting him the honors of patrician and either catepan or vestes [Col. 0129D: a certain palatine dignity], ordered the siege-engines to be burned. He returned to Bari and offered it, for the sake of praise, to the holy emperor Constantine Monomachus together with his fellow citizens [the source has an uncertain or defective phrase here].
+Afterwards, when the people of Trani were unwilling to inflict harm upon the people of Bari, in the last week of June the prince, together with the Normans and the people of Bari, besieged Trani for thirty-six days [witness 1 omits *cum*, “together with,” before “the Normans and the people of Bari”]. He afflicted it severely with battles and other calamities. He had a tower constructed there from a heap of timber such as human eyes had never seen in modern times. But Argiro, after receiving imperial letters granting him the honors of patrician and either catepan [witness 1 reads *cathepanus*, “catepan,” for *cathepanatus*, “catepanate”] or *vestes* [Col. 0129D: a palatine dignity], ordered the siege-engines to be burned. He returned to Bari and, together with his fellow citizens, ‘gave in praise’ to the holy emperor Constantine Monomachus [after *dedit*, “gave,” witness 1 has an empty or illegible reading; the source supplies no recoverable object].
 
 Thus far, such things have been done; now I shall return to the episode concerning the impiety of Maniachi. Therefore, after the Normans had, as I have said, been removed from his territories, and after the army had been gathered into one body, in June Maniachi set out by night toward the city of Matera. There, before the eyes of the people of Matera, the impious man had more than two hundred men killed—how many he captured among the crops and from every direction. Similarly, on a second expedition to Monopoli, the wicked man did not fear to act in the same way.
 
-1043. In this year, in September, Tubachi the protospatharius, Pardus the patrician, and Nicolaus the archbishop came down to Otranto with Chrysubulus [one witness reads *chyrisubulo*] and Simpatia. Then that wicked Maniachi, going out to meet them under the pretense of peace, immediately ordered Pardus to be killed by the sword, and Tubachi to be thrown into custody; in October he likewise had Tubachi killed.
+1043. In this year, in September, Tubachi the protospatharius, Pardus the patrician, and Nicolaus the archbishop came down to Otranto with Chrysubulus [witness 1 reads the inflected name-form *chyrisubulo*] and Simpatia. Then wicked Maniachi, going out to meet them under the pretense of peace, immediately ordered Pardus to be killed by the sword and Tubachi to be imprisoned; in October he likewise had Tubachi killed.
 
 ## LUPUS THE PROTOSPATHARIUS
 
@@ -3077,257 +3077,239 @@ Thus far, such things have been done; now I shall return to the episode concerni
 
 From the passage of Saint Gregory the pope: year 252, A.D. 855, indiction 3.
 
-[Note: The first witness repeats annotations from the Annals of Bari for the years 605, 612, and 782.]
+[Note: Witness 1a repeats annotations from the *Annals of Bari* for the years 605, 612, and 782.]
 
-In the year 860, indiction 8. In this year [the annual notices begin in the form “In the year …, indiction …, In this year,” apparently derived from nineteen-year cycles; the editor has chosen to omit the formula here] the city of Bari [one witness has *bari*] was captured by the emperor [witnesses 3 and 4 add “the Constantinopolitan emperor”].
+In the year 860, indiction 8. In this year [the annual notices begin “In the year …, indiction …, In this year,” apparently from nineteen-year cycles; the editor omits the repeated formula here] the city of Bari [witness 3 reads the place-name as *bari* for *Barum*] was captured by the emperor [witnesses 3 and 4 add *Constantinopolitano*, “the Constantinopolitan”].
 
-861 [A.D. 867]. The emperor Michael died, and Basil the *parakoimomenos*, his son, rose to power; he alone ruled for twenty-one years, and for nine [witness 1: eight] years with his sons [witnesses 3 and 4: “with his own sons”]. The words “his son” are absent from witnesses 1 and 1a. The name appears as *parascenumenus*, *parast.*, and *parascensu*.
+861 [the editor dates this A.D. 867]. The emperor Michael died, and Basil the *parakoimomenos*, his son, rose to power; he ruled alone for twenty-one years and for nine years with his sons [for *parakenumenus*, the chamberlain title, witness 1 reads *parascenumenus*, witness 2 abbreviates *parast.*, and witness 3 reads *parascensu*; witnesses 1 and 1a omit “his son”; witness 1 reads *octo*, “eight,” for “nine”; witnesses 3 and 4 read *filiis suis*, “his own sons,” for *filiis*, “sons”].
 
 866. The emperor Louis entered Benevento.
 
-867. Matera was burned by the emperor Louis, and the same emperor Louis entered the city of Oria [one witness reads *oriem*; Oria is in the province of Otranto].
+867. Matera was burned by the emperor Louis, and the same emperor entered Oria [witness 2 reads the accusative place-form *oriem* for *Oriae*; the editor locates Oria in the province of Otranto].
 
-868. The Saracens left the city of Bari through the Franks, on the third day beginning the month of February [witness 3 reads “September”]. In that same year the aforesaid Louis was captured at Benevento [compare the *Chronicle of Salerno*, chapter 107; Symeon the Master, concerning Basil, chapter 20, Bonn edition, pp. 694 ff.; Cedrenus, ibid., II, p. 221; Zonaras XVI.9, Paris edition, II, p. 170].
+868. The Saracens left Bari through the Franks, on the third day beginning February [witness 3 reads *Septembris*, “of September,” for *Februarii*, “of February”]. In that same year the aforesaid Louis was captured at Benevento [compare the *Chronicle of Salerno*, ch. 107; Symeon the Master, *On Basil*, ch. 20, Bonn ed., pp. 694 ff.; Cedrenus II, p. 221; Zonaras XVI.9, Paris ed., II, p. 170].
 
-875. The Greeks entered Bari in December, on the day of the Nativity of the Lord, on the third feria [some witnesses omit “feria”; others read “the third” or “III”]: Gregory the *stratēgos*, who was also called the *bajulus*.
+875. The Greeks entered Bari in December, on the Nativity of the Lord, on the third feria: Gregory the *stratēgos*, also called the *bajulus* [witnesses 3 and 4 omit *in*, “into,” before Bari; for *Baro*, witness 3 reads *bari* and witness 4 *barum*, forms of Bari; witness 1 omits the abbreviated *f.*, “feria”; at the numeral *3*, “third,” witnesses 3 and 4 print *III, et G.*, “III, and G[regory]”].
 
-880. The Saracens left Tarentum [compare Theophanes Continuatus V.66, Bonn edition, p. 306; Cedrenus II, p. 233].
+880. The Saracens left Tarentum [witness 3 reads the place-form *taranto* for *Tarento*; compare Theophanes Continuatus V.66, Bonn ed., p. 306; Cedrenus II, p. 233].
 
-884 [witness 1 has 883]. Aio rose to power as prince in October [all the manuscripts consistently read *Alo*; one witness has *priceps*, “prince”].
+884 [witness 1 dates the annal 883]. Aio rose to power as prince in October [all manuscripts consistently read the name *Alo* for *Aio*; witness 1 reads the misspelling *priceps* for *princeps*, “prince”].
 
-885. The emperor Basil died, and Leo and Alexander [one witness has “Alexius”], his sons, began to rule: alone for twenty-six years and with him for nine years [one witness omits “died”; another omits “and with him for nine years”].
+885. The emperor Basil died, and his sons Leo and Alexander began to rule: alone for twenty-six years and with him for nine years [witness 1 omits *mortuus est*, “died,” reads *Alexius* for *Alexander*, and singular *filius*, “son,” for plural *filii*, “sons”; witness 1* omits “and with him for nine years”].
 
-886. A disaster occurred in Bari in June, when the prince fought with the *stratēgos* of Trapezus and the Greeks. The Greek phrase is Κωνσταντῖνος ὁ τῆς τραπέζης, “Constantine of the table” [see Symeon, Bonn edition, p. 701; compare George the Monk, ibid., p. 852; Theophanes Continuatus VI.5, Bonn edition, p. 356; Cedrenus II, p. 253; also Erchempert, chapter 76]. Other witnesses read “treachery,” or “disaster and slaughter”; one has “when” rather than “that.”
+886. A disaster occurred in Bari in June, when the prince fought with the *stratēgos* of Trapezus and the Greeks [for *perditio*, “disaster/destruction,” witnesses 2–4 read *proditio*, “treachery,” and witness 1a reads *perditione et uccisione*, “destruction and killing”; witness 3 reads *quod*, “that,” for *quando*, “when”; for *stratico Trapezi*, “the *stratēgos* of Trapezus,” witness 1a reads the abbreviated *st. detrapegi*]. The recovered Greek phrase Κωνσταντῖνος ὁ τῆς τραπέζης means “Constantine of the table” [Symeon, Bonn ed., p. 701; compare George the Monk, p. 852; Theophanes Continuatus VI.5, p. 356; Cedrenus II, p. 253; Erchempert, ch. 76].
 
-890. Aio the prince died, and his brother Ursus rose to power [one witness has *urso*; another adds “indiction 4”].
+890. Aio the prince died, and his brother Ursus rose to power [witness 3 reads the inflected name-form *urso* for *Ursus*; witness 1 adds *ind. 4.*, “indiction 4”].
 
-[Col. 0124C] 891. The Greeks entered Benevento in October, and the *stratēgos* Sabbatichi entered Siponto in June [one witness has *Sabbathici*].
+[Col. 0124C] 891. The Greeks entered Benevento in October, and the *stratēgos* Sabbatichi entered Siponto in June [witness 3 reads the name *sabbathici* for *Sabbatichi*].
 
 894. The Greeks left Benevento in August through the Franks.
 
-900. Melisiano the *stratēgos* descended into Apulia [one witness reads *Meclitanus*].
+900. Melisiano the *stratēgos* descended into Apulia [witness 3 reads the personal name *meclitanus* for *Melisiano*].
 
-901 [one witness has 902, indiction 5; another says that this entry is taken from the Annals of Bari]. Abrami, king of the Saracens, descended into Calabria, went to the city of Cosenza, and was struck by lightning.
+901 [witness 1a dates the annal 902, indiction 5, and derives it from the *Annals of Bari*]. Abrami, king of the Saracens, descended into Calabria, went to Cosenza, and was struck by lightning.
 
-912. Five hundred years were completed since the death of Saint Martin [one witness spells out “five hundred”; another has “five”; another “fifty-one”; some omit the phrase].
+912. Five hundred years were completed since the death of Saint Martin [for the numeral *500*, witness 1 spells out *quingenti*, “five hundred,” witness 2 reads *V*, “five,” witness 3 *quinque*, “five,” and witness 4 *LI*, “fifty-one”; witness 1a omits this statement].
 
 913. Constantine, emperor and son of the aforementioned Leo, was crowned; he ruled for forty-seven years.
 
-916. The Saracens left Garigliano, and 350 years had passed since the Lombards entered Italy under their king Alboin [the place appears as *Garaliano*, *Gariliano*, and *Carigliano*].
+916. The Saracens left Garigliano, and 350 years had passed since the Lombards entered Italy under King Alboin [for the place-form *Garaliano*, witnesses 2 and 4 read *gariliano* and witness 3 *carigliano*].
 
-919 [some witnesses have 916; another adds “and in that same year”]. Eighty years were completed since the Saracens entered Italy [one witness omits the phrase; other witnesses read “forty years”].
+919 [witnesses 2 and 4 date the annal 916; witness 3 begins *Annoque eodem*, “and in that same year”]. Eighty years were completed since the Saracens entered Italy [witnesses 2 and 4 read *40*, “forty,” for *octoginta*, “eighty”; witness 1a omits the statement about their entry into Italy].
 
-920. The Hungarians, that is, the Huns [one witness has *Hunnii*], entered Italy in February.
+920. The Hungarians, that is, the Huns, entered Italy in February [witness 1 reads the spelling *hunnii* for *Hunni*].
 
-921. Ursileo the *stratēgos* fell in battle at Ascoli in April, and Nadulfus seized Apulia [the name appears as *Nandolfus*, *Andulfus*, and *Pandulfus*]. That is, Landulfus seized Apulia [Cedrenus II, p. 355].
+921. Ursileo the *stratēgos* fell in battle at Ascoli in April, and Nadulfus seized Apulia [for *Nadulfus*, witness 3 records *nandolfus andulph.* and witness 4 *pandulphum*, competing personal-name forms; witness 3 reads *apuleium* for *Apuleo*, the form attached to Apulia]. The editor explains the clause as “Landulfus seized Apulia” [Cedrenus II, p. 355].
 
-924 [one witness has 925, taken from the Annals of Bari]. Oria was captured by the Saracens in July, and they killed all the males; the rest they led away to Africa and sold them.
+924 [witness 1a dates the annal 925 and takes it from the *Annals of Bari*]. Oria was captured by the Saracens in July; they killed all the males and led the rest away to Africa to be sold.
 
-926. Michael Sclavus captured Siponto in July [one witness has June].
+926. Michael Sclavus captured Siponto in July [witness 1 reads *junio*, “in June,” for July].
 
-927. The destruction of Tarentum was accomplished, and all who fought bravely were killed; the survivors were carried away to Africa. This happened in August, on the feast of Saint Mary [some witnesses read “This was done”; others add “the year”].
+927. The destruction of Tarentum was accomplished, and all who fought bravely were killed; the survivors were carried to Africa. This happened in August on the feast of Saint Mary [witness 3 reads the place-form *zarenti* for *Tarenti*; at *Factum*, “It was done,” witnesses 2–4 print the abbreviated *A. Id f.*, “That was done,” while witness 3 also reads *est hoc*, “this was”].
 
-929. The princes Nandolfus and Guaimarius entered Apulia [compare the *Chronicle of Salerno*, chapter 158].
+929. The princes Nandolfus and Guaimari entered Apulia [for *Nandolfus*, witness 1 reads *nadolfus*, witness 3 *nandulphus*, and witness 4 *pandulphus*; for *Guaimari*, witness 1 reads *graimali*, witness 1a *grabimele*, witness 2 *guaymari*, and witness 4 *guaymarius*. These are competing forms of the two personal names; compare the *Chronicle of Salerno*, chapter 158].
 
 936. The Hungarians came to Capua.
 
 [Col. 0126C] 939. The sun was darkened and stars appeared in July, on the third day, Tuesday, at the third hour, with the moon twenty-nine days old.
 
-940. The Hungarians entered Italy in April. In that same year a battle was fought at Matera by the Greeks against the Lombards, with the *stratēgos* Imogalaptus [the name appears as *Imo Galacto*]. It is uncertain whether this Greek commander’s name derives from ὀμογάλακτος, “foster-brother,” or whether it is an epithet meaning “one who was suckled together”; I do not decide the matter. And he killed Pao at sea [one witness reads “denied him”; another has *Laeo*; an Italian note reads, “Paul seized him and threw him into the sea”].
+940. The Hungarians entered Italy in April. In that year the Greeks fought the Lombards at Matera under the *stratēgos* Imogalaptus [witness 3 reads the name as *imo galacto*]. The editor declines to decide whether the commander’s name derives from ὀμογάλακτος, “foster-brother,” or is an epithet meaning “one suckled together.” And he killed Pao at sea [witness 4 reads *negavit eum*, “denied him,” for *necavit*, “killed”; witness 3 reads *Laeo* for *Pao*; witness 1a has the Italian *paholo preselo anegho in mare*, “Paul seized him and threw him into the sea”].
 
-942. Nandolfus the prince died on the tenth day of April [the name also appears as *Nadolfus*, *Nadulfo*, and *Pandulphus*].
+942. Nandolfus the prince died on the tenth day of April [witness 1 reads *obii* for *obiit*, “died”; for *Nandolfus*, witness 1 reads *nadolfus*, witness 1a *nadulfo*, witness 3 *nandulphus*, and witness 4 *pandulphus*, competing forms of the personal name].
 
-945. Romanus and Ubo fell in December, and the Hungarians perished at the hands of King Otto [Romanus was the Greek emperor, deposed in December 944 and dead in July 948; Ubo was Hugh, king of Italy, in 947. Some witnesses omit “and”; other forms are *Romano*, *Romani*, *Octone*, and *Othone*].
+945. Romanus and Ubo fell in December, and the Hungarians perished at the hands of King Otto [witness 2 repeatedly reads *romano* and witness 3 *romani* for *Romanus*; witness 3 omits *et*, “and,” before Ubo; the editor identifies Romanus as the Greek emperor deposed in December 944 and dead in July 948, and Ubo as Hugh, king of Italy, in 947; for *Ottone*, witnesses 2 and 3 read *octone* and witness 4 *othone*; an editorial note dates the event A.D. 955].
 
-946. A homicide took place in Bari in December [some witnesses add “among the citizens”].
+946. A homicide took place in Bari in December [witnesses 4 and 1a add *inter cives*, “among the citizens”].
 
-947. The Hungarians entered Italy and advanced as far as Otranto. Platopodi besieged the city of Conversano [some witnesses read *Cupersani*]. That same year there was a destruction of cattle throughout the whole land [one witness reads *interritus*; witnesses 3 and 4 read *bonus introitus*, “a good entry”).].
+947. The Hungarians entered Italy and advanced as far as Otranto. Platopodi besieged the city of Conversano [the adopted *Cupersani* is the place-name form; witness 3 reads *conversani*]. That same year there was a destruction of cattle throughout the whole land [at *interitus*, “destruction,” witness 1 reads *interritus*, literally “undaunted,” a contextually corrupt form; for *bovum*, “of cattle,” witnesses 3 and 4 instead read *bonus introitus*, “a good entry”].
 
-950. The Greeks besieged Ascoli [some witnesses add “and captured it”].
+950. The Greeks besieged Ascoli [witnesses 4 and 1a add *et obtinuerunt*, “and captured it”].
 
-951. Malachiano fought a battle in Calabria with the Saracens and fell [some witnesses add: “In the year 955 Marianus the patrician descended into Apulia”; compare Cedrenus II, p. 358].
+951. Malachiano fought the Saracens in Calabria and fell [witnesses 3 and 4 add: “In the year 955 Marianus the patrician descended into Apulia”; compare Cedrenus II, p. 358].
 
-956 [compare Theophanes Continuatus VI.30, p. 453]. Marantius Clemeri and Excessula were burned in Bari [the names appear in various forms, including *Demerus*, *Cremerus*, *Clerus*, and *Thessula*].
+956 [compare Theophanes Continuatus VI.30, p. 453]. Marantius Clemeri and Excessula were burned in Bari [for *Clemeri*, witness 2 reads *demeri*, witness 1a *cremeri*, witness 3 *cleri (clericus?)*, “cleri (a cleric?),” and witness 4 *cleri*; witness 1a reads *thessula* for *Excessula*. These are competing forms of the two personal names].
 
 960. The emperor Constantine died, having ruled for forty-seven years, and his son Romanus rose to power. There was a battle between Adralistus and Ismael.
 
-961. The island of Crete was captured by the Greeks under Romanus in March [compare Leo the Deacon II.6–8]. Trabomen was captured by the Saracens, and the sun was darkened [one witness adds *tertio*, “third”; the name appears as *Titabomen* and *Trabomen*].
+961. The island of Crete was captured by the Greeks under Romanus in March [compare Leo the Deacon II.6–8]. And Trabomen was captured by the Saracens, and the sun was darkened [after *et*, “and,” witness 1 adds *tertio*, “third” or “on the third,” without a stated referent; for *Trabomen*, witnesses 3 and 4 read *titabomen* and witness 1a *ctrabomen*, alternate forms of the place-name].
 
 963. The emperor Romanus died, and Nicephorus was elevated; he ruled for seven years. King Otto entered Rome, and the sun was darkened.
 
-965. Manuel the patrician entered Sicily and died there [the name appears as *Manuli*, *Manuelis*, and *Manuyci*; compare Leo the Deacon IV.7–8; Cedrenus II, pp. 353, 360; Zonaras XVI.24].
+965. Manuel the patrician entered Sicily and died there [for *Manuyli*, witness 1 reads *manuli*, witness 3 *manuelis*, and witness 4 *manuyci*, competing forms of Manuel; compare Leo the Deacon IV.7–8; Cedrenus II, pp. 353, 360; Zonaras XVI.24].
 
-966. Nicephorus the *magister* entered the city of Bari, and 400 years had passed since the Lombards entered Italy [one witness omits “the *magister*”].
+966. Nicephorus the *magister* entered Bari, and 400 years had passed since the Lombards entered Italy [witness 1 omits *magister*, “master”; witnesses 1 and 2 abbreviate *Langobardi*, “Lombards,” as *long.*].
 
-967. Otto the elder, father of King Otto, descended; he fought with Bulchassinus, king of the Saracens, and killed him [one witness adds: “and forty thousand pagans were killed”; compare below, year 982].
+967. Otto the elder, father of King Otto, descended; he fought Bulchassinus, king of the Saracens, and killed him [witness 1a adds the Italian *et furonvi morti quaranta milia pagani*, “and forty thousand pagans were killed there”; compare the year 982 below].
 
-969. King Otto entered Apulia in March and besieged the city of Bari [some witnesses add “with an unsuccessful attempt”]. In the following year he entered Calabria in October, and the sun was darkened in December [a note identifies the eclipse as occurring in A.D. 968, on December 22].
+969. King Otto entered Apulia in March and besieged Bari [witnesses 4 and 1a add *irritu conatu*, “with an unsuccessful attempt”]. In the following year he entered Calabria in October, and the sun was darkened in December [the editor dates the eclipse to A.D. 968, December 22].
 
-970. Simischi killed the emperor Nicephorus, and he was elevated in his place [the name appears as *Simihi* and *Simichy*].
+970. Simischi killed the emperor Nicephorus and was elevated in his place [for *Simischi*, witness 1 reads *simihi*, witness 2 *simichy*, and witnesses 3 and 4 *simischi*].
 
-972. Atto, son of Transamundus, marquis of Spoleto, fought with 40,000 Saracens. Their *caytus*, that is, commander, was called Bucoboli. Atto prevailed with his 60,000 men, pursuing the Saracens as far as Tarentum [the names appear as *Apto*, *Acto*, *Actho*, *Asto*, and *Octo*; *Transamundus* also appears as *Transmundus*].
+972. Atto, son of Transamundus, marquis of Spoleto, fought with 40,000 Saracens. Their *caytus*, that is, commander, was called Bucoboli. Atto prevailed with his 60,000 men, pursuing the Saracens as far as Tarentum [at the first *Atto*, witness 1 reads *apto*, witness 2 *acto*, witness 3 *actho*, witness 4 *asto*, and witness 1a *octo*; witnesses 1 and 1a read *transmundi* for *Transamundi*; the editor identifies the marquis as “of Spoleto”; for *marcise*, “marquis,” witness 1 reads *marase* and witnesses 3 and 4 *marchisii*. Witness 2 reads *caycus* for the title *caytus*. At the second *Atto*, witnesses 1? and 4 read *asto*, witness 2 *acto*, witness 3 *actho*, and witness 1a *octo*. Witness 1a prints the number as *60*, while witnesses 1–4 print *LX*, also “sixty,” before *milibus*, “thousand.” For *persequens*, “pursuing,” witnesses 1? and 2? read *prosequens*, “following” or “escorting”].
 
-973 [one witness has 977]. Passarus the protospatharius died [some witnesses have *protosphatha*].
+973 [witness 1 dates the annal 977]. Passarus the protospatharius died [witness 2 consistently reads *protosphata* for *prothospatarius*, the same office-title].
 
-975. Ismael was killed, and Zacharias took Bitonto [the place appears as *Botuntum*, *Butontem*, and *Botritum*].
+975. Ismael was killed, and Zacharias took Bitonto [for the place-form *Botuntum*, witness 2 reads *butontem* and witness 3 *botritum*].
 
-976. The Saracens besieged Gravina, and Simischi the emperor died—he was also called John. Basil and Constantine, brothers, began to reign [some witnesses add “with an unsuccessful attempt”].
+976. The Saracens besieged Gravina [witnesses 4 and 1a add *irrito conatu*, “with an unsuccessful attempt”], and the emperor Simischi, also called John, died [for *Simischi*, witness 1 reads *simichi* and witness 2 *simichy*]. The brothers Basil and Constantine began to reign [witness 1 reads *basulux* for *Basilius*, a corrupt form of Basil].
 
-977. The Saracens burned the city of Oria and led all the common people away to Sicily [one witness has *Horiae*].
+977. The Saracens burned Oria and led all the common people away to Sicily [witness 1 reads the place-form *horiae* for *Oriae*].
 
-978 [the entire year is absent from one witness]. John the bishop died, and Pao became archbishop, in indiction 6 [witness 5b reads *Paulus*, “Paul”].
+978 [the entire annal is absent from witness 1a]. John the bishop died, and Pao became archbishop, in indiction 6 [for the personal name *Pao*, witness 5b reads *Paulus*, “Paul”].
 
-979. Porfirius the protospatharius killed Andrew, bishop of Oria, in August [the names appear as *Profreus*, *Oretanus*, *Horetanus*, and *Oratanus*].
+979. Porfirius the protospatharius killed Andrew, bishop of Oria, in August [witness 2 reads *profreus* for the personal name *Porfirius*; for *Oretanum*, “of Oria,” witness 1 reads *horetanum* and witness 3 *oratanum*].
 
-[Col. 0130B] 981. King Otto fought a battle with the Saracens in Calabria, in the city of Colonna, and 50,000 pagans died there together with their king, whose name was Bullicassinus [the place appears as *Colupna* and *Cotruna*; some witnesses read *poenorum*, “Punics,” rather than *paganorum*, “pagans”; the king’s name appears as *Bullicassimus* and *Bulcassinus*. One witness refers here to a note under the year 982 in the Annals of Bari].
+[Col. 0130B] 981. King Otto fought a battle with the Saracens in Calabria, in the city of Colonna, and 50,000 pagans died there together with their king, whose name was Bullicassinus [for *Columnae*, the city-name, witness 2 reads *colupna*, witness 3 *columna*, and witness 4 *cotruna*; for *paganorum*, “of pagans,” witnesses 2–4 read *poenorum*, “of Carthaginians” or “of Punics”; for *Bullicassinus*, witness 2 reads *bullicassimus*, witness 3 *bulcassino*, and witness 4 *bulcassimus*. In place of this material, witness 1a refers to the note at 982 in the *Annals of Bari*].
 
-982. Bari was handed over to the patrician Calochirus, also called Dalfina, by two brothers, Sergius and Theophylact, on June 11. King Otto died at Rome.
+982. Bari was handed over to the patrician Calochirus, also called Dalfina, by the brothers Sergius and Theophylact on June 11 [witnesses 3 and 4 read the name *delfina* for *Dalfina*]. King Otto died at Rome.
 
-983. The aforementioned Dalfina the patrician captured the city of Ascoli in December [one witness calls him “Delfinus of the Franks”].
+983. The aforementioned Dalfina the patrician captured Ascoli in December [for *Dalfina*, witness 3 reads *delphinus francorum c. a.*, “Delfinus of the Franks,” with the final abbreviation unresolved; witness 1 reads the place-form *ascoli* for *Asculum*].
 
 985. The patrician Romanus descended into Apulia with his son.
 
-986. The Saracens captured the holy city of San Chiriaco and devastated Calabria [one witness adds “the whole of Calabria”; the city appears as *S. Chiriaco*, *Kyrathy*, and *Chirachi*].
+986. The Saracens captured the holy city of San Chiriaco and devastated Calabria [for *Chiriachi*, witness 2 reads *kyrathy* and witness 1a *chirachi*; the editor identifies the place as S. Chiriaco; witness 4 adds *totam*, “the whole of,” before Calabria].
 
-987. Sergius the protospatharius was killed by the people of Bari on February 15. In that same year Andralistus was killed by Nicolaus Criti on August 15, and the sun was darkened [the name appears as *Andraliscus*].
+987. Sergius the protospatharius was killed by the people of Bari on February 15. In that same year Andralistus was killed by Nicolaus Criti on August 15, and the sun was darkened [witness 2 reads the personal name *andraliscus* for *Andralistus*].
 
-988. The Saracens ravaged the villages and farmsteads of the people of Bari and carried men and women captive to Sicily [one witness specifically reads “villages and farmsteads”].
+988. The Saracens ravaged the villages of the people of Bari and carried men and women captive to Sicily [for *vicos*, “villages,” witness 1a reads the Italian *vichi cio et casali*, “villages, that is, and farmsteads”].
 
-989. John the patrician, also called Ammiropolus, descended and killed Leo Cannatus, Nicolaus Critis, and Porfirius [the names appear as *Canutus*, *Cretis*, and *Porfirius*].
+989. John the patrician, also called Ammiropolus, descended and killed Leo Cannatus, Nicolaus Critis, and Porfirius [witness 3 reads *canutum* for *Cannatum*, the inflected personal name; witness 1 reads *cretis* for *Critis*].
 
-990. Bubali and Petrus the *exubitus* were killed in March [another witness reads “Bubali descended.” An *excubitor* was an office in the Byzantine court].
+990. Bubali and Petrus the *exubitus* were killed in March [witness 5 reads *descendit*, “descended,” for *occisus est*, “was killed”; witness 2 reads *exsubitus* for *exubitus*. The editor identifies the office as *excubitor*, a functionary in the Byzantine court].
 
-[Col. 0130D] 991. Atto the count fought a battle with the Saracens at Tarentum, and he fell there together with many men of Bari [the name appears as *Apto*, *Actho*, and *Octo*].
+[Col. 0130D] 991. Count Atto fought the Saracens at Tarentum and fell there with many men of Bari [for *Atto*, witness 1 reads *apto*, witness 3 *actho*, and witness 1a *octo*, competing name-forms].
 
-992. A great famine occurred throughout all Italy [some witnesses add “and a scarcity of grain”].
+992. A great famine occurred throughout all Italy [for *omnem*, “all,” witnesses 3 and 4 read *totam*, also “the whole of”; those witnesses add *et annonae caritas*, “and a scarcity/high price of grain”].
 
-993. Paul the archbishop died, and Chrysostom was elevated [the latter phrase is absent from one witness].
+993. Pao the archbishop died, and Chrysostom was elevated [witness 5 reads the name *pau* for *Pao*; witness 1a omits “and Chrysostom was elevated”].
 
 994. Matera was besieged by a Saracen force for three months, and in the fourth month it was captured by them.
 
-997. Theodore the *marco* and *exubitus* was killed in the city of Oria by Smaragdus and Petrus, brothers [the first term is variously *nearco*, *marco*, *marcus*, and *marcho*; *exubitus* is also written *excubitus*].
+997. Theodore the *marco* and *exubitus* was killed in the city of Oria by the brothers Smaragdus and Petrus [for *marco*, an uncertain title or name attached to Theodore, witness 2 reads *nearco*, witness 3 *marcus*, and witness 4 *marcho*; witnesses 2–4 read *excubitus* for *exubitus*, denoting an excubitor or imperial guard official; witness 1 reads *smaralgdo* for the personal name *Smaragdo*].
 
-998. Busitu the *caytus* came with the aforementioned Smaragdus to Bari in October. The aforesaid Smaragdus, on horseback, entered Bari by force through the western gate and went out again; then Busitu, having learned of the deception, departed [the title appears as *kaitus* and *chaitus*].
+998. Busitu the *caitus* came with the aforementioned Smaragdus to Bari in October [for the title *caitus*, witness 2 reads *kaytus* and witness 3 *chaytus*]. Smaragdus entered Bari on horseback by force through the western gate and went out again [witness 2 reads *in baro*, “in Bari,” for *Barum*]; then Busitu, having learned of the deception, departed.
 
-999. Trachamoti the catepan, also called Gregory, descended and besieged the city of Gravina, and captured Theophylact.
+999. Trachamoti the catepan, also called Gregory, descended and besieged the city of Gravina, and captured Theophylact [for the personal name *Trachamoti*, witness 3 reads *tracmonti*; witness 2 consistently reads *catapanus* for *catepanus*, both meaning “catepan” or provincial governor].
 
 ## LUPUS THE PROTOSPATHARIUS
 
 [Col. 0131]
 
-[Col. 0131B] In the year 1000 from the incarnation of the Lord, indiction 13, the aforementioned Smaragdus was captured by Trachamoti on July 11. In that same year King Otto died at Rome [one witness reads “Smaragdus in Trachamotus”].
+[Col. 0131B] In the year 1000 from the incarnation of the Lord, indiction 13, the aforementioned Smaragdus was captured by Trachamoti on July 11 [at *Smaragdus*, witness 3 reads *S. in tracamotto*, “S[maragdus] in Trachamotus,” a corrupt change of syntax]. In that same year King Otto died at Rome [witness 1 reads *opto* for the name *Otto*].
 
 1002. The *caytus* Sapi besieged Bari from May 2 until Saint Luke’s day in October; then it was liberated by Peter, duke of the Venetians.
 
-1003. The Saracens besieged Monte Caveoso in March [some witnesses add “and accomplished nothing”].
+1003. The Saracens besieged Monte Caveoso in March [witness 1 reads the place-form *scaueosum* for *Caveosum*; witnesses 4 and 1a add *et nihil profecerunt*, “and they accomplished nothing”].
 
-1005. Durazzo returned to the hands of the emperor through Theodore [one witness has *Eraclius*].
+1005. Durazzo returned to the emperor’s hands through Theodore [for *Durachium*, the place-name Durazzo, witness 1 reads *eraclius*, “Heraclius,” changing the grammatical subject].
 
-1006. Siphea the catepan descended in July [the name appears as *Xyphea*].
+1006. Siphea the catepan descended in July [witness 1 reads first-person *descendi*, “I descended,” for *descendit*, “he descended”; witnesses 3 and 4 read the name *xyphea* for *Siphea*].
 
-1007. The aforementioned catepan died in the city of Bari.
+1007. The aforementioned catepan died in Bari [witness 2 reads *baro*, an inflected form of Bari, for *Bari*].
 
-1008. The patrician Curcua descended in May [one witness has *Curcira*].
+1008. The patrician Curcua descended in May [witness 1a reads the name *curcira* for *Curcua*].
 
-1009. A very great snow fell, from which the olive trees dried up; fish and birds also died. In May a rebellion began, and in August the Saracens, after breaking the treaty, captured the city of Cosenza in the name of the *caytus* Sati [one witness has “named Sati”; other witnesses omit the phrase identifying the *caytus*].
+1009. A very great snow fell, from which the olive trees dried up; fish and birds also died. In May a rebellion began, and in August the Saracens, after breaking the treaty, captured Cosenza in the name of the *caytus* Sati [witness 1 consistently spells *Sarraceni* as *saraceni* and also writes *normani*, “Normans,” at this locus; for *nomine cayti Sati*, “in the name of the *caytus* Sati,” witness 1 reads *nominati*, “named,” while witness 3 omits the whole identifying phrase].
 
-1010. Curcua died, and Basil the catepan of Macedonia descended in March. Sillictus burned the people themselves in the city of Trani [the designation attached to the catepan appears as *Marsedonici*, *Marcedonico*, *Mascedoniti*, *Macedonia*, and *Mesardoniti*; Trani appears as *Trane*].
+1010. Curcua died, and Basil, catepan of Macedonia, descended in March [for *Marsedonici*, “of Macedonia,” witness 1a reads *marcedonico*, witness 2 *mascedoniti*, witness 3 *macedonia*, and witness 5 *mesardoniti*]. Sillictus burned the people themselves in Trani [witness 1 reads *silictus* for *Sillictus*; witness 2 reads the place-form *trane* for *Trani*].
 
-1014. The emperor Henry came to Rome in February, and Cassano was burned in August [the place appears as *Cassanus*; some witnesses read “Cassano was burned”].
+1014. The emperor Henry came to Rome in February, and Cassano was burned in August [witness 2 reads the name *enrichus* for *Henricus*; for *Cassanum incensum*, “Cassano burned,” witnesses 2–4 read *cassanus incensa*, with mismatched masculine and feminine forms but the same intended place and burning].
 
 [Col. 0132B] 1015. A comet appeared in February. King Samuel died, and his son reigned.
 
-1016. The aforesaid Samuel’s son was killed by his cousin, the son of Aaron, and the latter himself reigned. The city of Salerno was besieged by the Saracens by sea and by land [some witnesses add “and they accomplished nothing”; one adds “king of Africa”].
+1016. The aforesaid Samuel’s son was killed by his cousin, the son of Aaron, and the latter reigned. Salerno was besieged by the Saracens by sea and land [witness 1a adds *re de Africa*, “king of Africa,” after Samuel’s name; witnesses 4 and 1a add *et nihil profecerunt*, “and they accomplished nothing,” after the siege].
 
-1017. The catepan of Macedonia died at Butrint, and in November Leo, the brother of Argiro, was killed. In this year Turnichi the catepan descended in May. Leo Patiano the *exubitus* fought with Mele and the Normans. Again, on June 22, the aforesaid Turnichi the catepan fought a battle and defeated Mele and the Normans; Patiano died there [several witnesses omit the concluding words]. Condoleo descended in that same year.
+1017. The catepan of Macedonia died at Butrint [for *Marsedonici*, “of Macedonia,” witness 2 reads *marsedoniti*, witness 3 *masardoniti*, and witness 4 *mesardoniti*], and in November Leo, Argiro’s brother, was killed. In this year Turnichi the catepan descended in May [witness 2 reads *turnici* for the name *Turnichi*]. Leo Patiano the *exubitus* fought Mele and the Normans [witness 1 reads *mese* for *Mele*]. Again, on June 22, Turnichi fought and defeated Mele and the Normans [witness 2 reads the name *turniki*]; Patiano died there. Condoleo descended in the same year [witnesses 3, 4, and 1a omit *et Condoleo descendit in ipso anno*, “and Condoleo descended in that same year”].
 
-[Col. 0132C] 1018. Basil the catepan, also called Bugianus, and the patrician Abalanti descended in December. Ligorius Tepoterici fought a battle at Trani; Joannatius the protospatharius was killed there, and Romoald was captured and carried away to Constantinople [the names appear as *Ababanti*, *Abalautius*, *Tepoteriti*, *Romoala*, and *Romoal*].
+[Col. 0132C] 1018. Basil the catepan, also called Bugianus, and the patrician Abalanti descended in December [for *Abalanti*, witness 1 reads *ababanti* and witness 4 *abalautius*]. Ligorius Tepoterici fought at Trani [witnesses 2–4 read *tepoteriti* for *Tepoterici*]; Joannatius the protospatharius was killed there, and Romoald was captured and carried to Constantinople [for *Romoald*, witnesses 1 and 1a read *romoala* and witness 3 *romoal*].
 
 1019. The aforementioned Bugianus fought a battle in October with the Franks and defeated them. Mele fled with some Franks to the emperor Henry.
 
-1020. The Saracens descended with Rayca, besieged Bisignano, and captured it. The *amira* himself and Melis, duke of Apulia, died [the title appears as *admira*, *ammira*, *amira*, and *amita*].
+1020. The Saracens descended with Rayca, besieged Bisignano, and captured it [witness 1a reads the name *rahica* for *Rayca*]. The *admira* and Melis, duke of Apulia, died [for the uncertain title *admira*, witness 1a reads *ammira*, witness 2 *amira*, and witness 3 *amita*].
 
-1021. Dactus was captured and entered the city of Bari riding on a donkey on June 15 [the name appears as *Dictus*, *Dattus*, and *Dactus*].
+1021. Dactus was captured and entered Bari riding on a donkey on June 15 [for the personal name *Dactus*, witness 1 reads *dictus* and witnesses 2, 4, and 5 *dattus*].
 
-1022. The emperor Henry came to Benevento in March and besieged the city of Troia [one witness adds “in the Capitanata”].
+1022. The emperor Henry came to Benevento in March and besieged Troia [witness 4 adds *in Capitinata*, “in the Capitanata”].
 
-1023. Rayca came with Jaffari Criti to the city of Bari in June and besieged it for one day. Then, having been driven away from there, they captured the town of Palagiano and built the castle of Mutula [Palagiano is now Palesciano; the names appear as *Bayca*, *Taffari*, *Saffari*, and *Zaffari*; one witness has *Disutile* for Mutula].
+1023. Rayca came with Jaffari Criti to Bari in June and besieged it for one day [witness 3 reads *bayca* for *Rayca*; for *Jaffari*, witness 3 reads *taffari*, witness 4 *saffari*, and witness 1a *zaffari*]. Driven away, they captured Palagiano [witness 3 abbreviates the place *pelag.*; the editor identifies it as modern Palesciano] and built the castle of Mutula [witness 1a reads *disutile* for the place-name *Mutulae*].
 
-1024. A great sign occurred in the episcopate of Acherontia, under Bishop Stephen II of Matera, on the holy day of Easter [witness 2: “the second day”]: a great silver crucifix was shaken three times—at the head, the arms, and the feet—with everyone looking on. In this year a great snow also fell. In this year Bugianus crossed over to Croatia and captured Patrocissa, the wife of Cismigi, and sent her to Constantinople. In this year the emperor Henry died, and his nephew Conus rose to power [the names appear as *Chorvatia*, *Curbathia*, *Curbachia*, and *Corbatia*; Patrocissa also appears as *Patricissa* and perhaps *Principissa*; Cismigi appears as *Cosmigi*, *Cormici*, *Cosmici*, and *Cosmizi*].
+1024. A great sign occurred in the episcopate of Acherontia, under Stephen II, bishop of Matera, on the holy day of Easter [witness 2 reads *secundo*, “second,” for *sancto*, “holy”]: a great silver crucifix was shaken three times—at the head, arms, and feet—before everyone. In this year a great snow also fell. Bugianus crossed to Croatia, captured Patrocissa, wife of Cismigi, and sent her to Constantinople [for *Chorvatia*, witness 2, 3, and 4 read *curbathia*, witness 1a *curbachia*, and witness 5 *corbatia*; for *Patrocissam*, witness 5 reads *patricissa* and witnesses 2? and 4 *principissam*, “princess”; for *Cismigi*, witness 2 reads *cosmigi*, witness 3 *cormici*, witness 4 *cosmici*, and witness 5 *cosmizi*]. The emperor Henry died, and his nephew Conus rose to power [for *Enerich*, witnesses 1 and 2 read *anarich*, witness 3 *henricus*, and witness 1a *analic*; witness 3 reads *constantinus* for *Conus*].
 
-1028. Orestes the *chetonites* descended in April [compare Cedrenus II, p. 479]. Then John, the bishop of Bari, died, and Bisancius became archbishop [the title appears as *Chetonici*, *Ketoniti*, and *Chetensi*].
+1028. Orestes the *chetonites* descended in April [compare Cedrenus II, p. 479; for the uncertain title *chetoniti*, witness 1 reads *chetonici*, witness 2 *ketoniti*, and witness 3 *chetensi*]. Then John, bishop of Bari, died, and Bisancius became archbishop [witness 1 reads *baronensis* for *Barensis*, “of Bari”].
 
-1029. Eustachius came with his sons Basiliscus and Mandatora, and brought the honor of catepan to Christophorus. The aforementioned Orestes descended to Constantinople with Bugianus. In this year the emperor Constantine died on the eve of Saint Martin’s day; while still alive, he installed Romanus in his seat and gave him his daughter Zoe as wife. Finally, Raycha and Zaffari besieged the castle of Obbianum; the people of Obbianum, handing over outsiders, made peace with them. In July Potho the catepan came and fought with Raycha at Bari [one witness has “August”]. In this year Guaimarius, prince of Salerno, died [a marginal note in another hand reads: “This year—at Salerno”].
+1029. Eustachius came with his sons Basiliscus and Mandatora and brought the honor of catepan to Christophorus [witness 2 reads *basilicho* for *Basilisco*; witness 1 omits *et*, “and,” before Mandatora]. Orestes descended to Constantinople with Bugianus. The emperor Constantine died on Saint Martin’s eve; while still alive, he installed Romanus in his seat and gave him his daughter Zoe as wife. Raycha and Zaffari besieged the castle of Obbianum [for *Zaffari*, witness 2 reads *zafari* and witnesses 3 and 4 *saffari*; witness 1 omits *castellum*, “castle”]; the people of Obbianum surrendered outsiders and made peace. In July Potho the catepan came and fought Raycha at Bari [witness 1a reads *aghosto*, “August,” for July and *protho* for *Potho*; witness 1 reads *raicha* for *Raycha*]. Guaimarius, prince of Salerno, died [witness 1 has the text from “This” through “Salerno”; witness 2 supplies it in a later hand in the margin].
 
-1031. In June the Saracens captured the city of Cassano. On the third day beginning July, Potho fought a battle with the Saracens, and the Greeks fell [one witness calls him the *protocatepan*].
+1031. In June the Saracens captured Cassano. On the third day beginning July, Potho fought the Saracens, and the Greeks fell [witness 1a reads *prothocatapano*, “protocatepan,” for the personal name *Potho*].
 
-[Col. 0134A] 1032. Hychiacon the *ketonites* descended and brought with him the Anatolici. The manuscripts vary considerably. One version reads: “Michael the *protospatarius*, *kritēs* of the *bēlon* and of the Hippodrome, descended, and brought the Anatolici under Hychiacon the catepan.”
+[Col. 0134A] 1032. Hychiacon the *ketonites* descended and brought the Anatolici with him [for *Hychiacon*, witness 2 reads *ykyaconi*, witness 3 *ychiachon*, witness 4 *ichiacon*, and witness 1a *ykraton*; for *ketoniti*, the uncertain title rendered *ketonites*, witness 1 reads *keconiti*, and witnesses 1–4 insert *et*, “and”; for *Anatolichi*, “the Anatolics,” witness 1 reads *anacolichi*, witness 2 *anacolitiy*, witness 1a *anacoliky*, and witness 3 *anatholicii*. Witness 5 reads *Descendit Michail protospata criti tu bilu ke tu ypodromu, et adduxit Anatoliki epi tu Ykyacon catp.*: “Michael the protospatharius, judge of the *bēlon* and of the Hippodrome, descended and brought the Anatolics under Hychiacon the catepan”].
 
-1033. On the first day of May, Constantine the protospatharius, also called Opo, descended as catepan of Italy [according to the editor, this is apparently the same person whom Cedrenus II, p. 503, calls Λέων ὁ λεγόμενος Ὦπος, “Leo called Opos”].
+1033. On the first day of May, Constantine the protospatharius, also called Opo, descended as catepan of Italy [where the adopted text has *qui et Opo vocabatur*, “who was also called Opo,” witnesses 1 and 1a read the defective *qui ropo*; the editor apparently identifies him with the figure whom Cedrenus II, p. 503, calls Λέων ὁ λεγόμενος Ὦπος, “Leo called Opos”].
 
-1034. On April 11, the emperor Romanus died, and the emperor Michael rose to power. Argiro of Bari also died at Constantinople [one witness has a marginal note that Argiro died; other witnesses omit the statement].
+1034. On April 11, the emperor Romanus died, and the emperor Michael rose to power. Argiro of Bari also died at Constantinople [at the conjunction introducing Argiro, witness 2 has a later marginal addition, *et Argiro obiit in c.*, “and Argiro died in C[onstantinople]”; witnesses 3 and 4 omit the entire Argiro statement, while witness 1 reads the unexplained form *cerigo*].
 
-1038. Michael the patrician and duke, also called Sfrondili, descended and crossed over to Sicily with the patrician Maniachi [Cedrenus II, p. 512, calls him Γεώργιος πατρίκιος ὁ Μανίακης, “George the patrician, Maniaches”; compare ibid., pp. 520, 522, 545; Zonaras XVII.15].
+1038. Michael the patrician and duke, also called Sfrondili, descended and crossed over to Sicily with the patrician Maniachi [witness 5 reads *sfondili* for the name *Sfrondili*; for *Maniachi*, witness 1 reads *mamachi*, witness 2 *maniaky*, and witness 3 *muniachi*. Cedrenus II, p. 512, calls him Γεώργιος πατρίκιος ὁ Μανίακης, “George the patrician Maniaches”; compare ibid., pp. 520, 522, 545; Zonaras XVII.15].
 
-1039 [one witness has 1038]. In February, Nicephorus the catepan descended; he was also called Dulchianus [the name appears as *Nikiforus* and *Dulkyanus*]. Cedrenus, p. 545, calls him Μιχαὴλ πρωτοσπαθαρίος ὁ Δοκειανός, “Michael the protospatharius Dochianus”; William of Apulia calls him Michael Dochianus.
+1039 [witness 1a dates the annal 1038]. In February Nicephorus the catepan descended; he was also called Dulchianus [witness 2 reads *nikyforus* for *Nichiforus* and consistently *dulkyano* for *Dulchiano*]. Cedrenus, p. 545, calls him Μιχαὴλ πρωτοσπαθαρίος ὁ Δοκειανός, “Michael the protospatharius Dochianus”; William of Apulia calls him Michael Dochianus.
 
-1040. The aforementioned Dulchianus expelled 201 *conterati* from Apulia, and those *conterati* killed Chirisfactira, the imperial *kritēr* (“judge”), and Romanus of Matera beneath Mutula in May; the source also prints the unexplained numeral 204 immediately before “beneath Mutula” [the manuscripts read *conteratos* or *contractos*; the name Chirisfactira appears as *Kyrifactora*, *Christophorus*, and Greek κειρισφακτῆρα]. In the same month Argiro, son of Melis, besieged the city of Bari, struck Musandus, bound him with fetters, and entered Bari with him. The *conterati* were scattered [some witnesses read “bound him” or “bound him with chains”].
+1040. The aforementioned Dulchianus expelled the *conterati* from Apulia, and those *conterati* killed Chirisfactira, an imperial official whose printed title *critiri* is uncertain, and Romanus of Matera beneath Mutula in May [the printed numerals 201 after *conteratos* and 204 after *imperator* are notation, not stated troop counts. Witness 4 consistently reads *contractos*, “contracted” or “enlisted men,” for *conteratos*, whose exact designation remains uncertain. For *Chirisfactira*, witness 2 reads *kyrifactora*, witness 3 *christophorum*, “Christopher,” and the recovered Greek gives κειρισφακτῆρα; witness 3 reads *critim* for *critiri*. For *imperator*, witness 2 and witness 4 read accusative *imperatorem*, “emperor,” and witness 3 abbreviates it *imp.*; witnesses 2–4 read *materiensem* for *Materiense*, both “of Matera”]. In the same month Argiro, son of Melis, besieged Bari, struck Musandus [witness 4: *musandrum*], bound him with a fetter [witness 1: *ei vincula*, “fetters upon him”], and entered Bari with him. The *conterati* were scattered.
 
-1041. Dulchianus descended from Sicily and went to Ascoli. In March the Lombard Arduinus summoned the Normans to Apulia, in the city of Melfi [witnesses 1 and 2 omit “the Normans”]. The aforementioned Dulchianus fought with the Normans—nearly three thousand [witnesses 2–4 omit the number]—and the Greeks fell. In May the Normans again fought with the Greeks on Wednesday, and Dulchianus fled to Bari [one witness reads “four hundred Normans”; compare Cedrenus I, p. 546].
+1041. Dulchianus descended from Sicily and went to Ascoli [witness 1 reads the shortened name-form *dulchia*]. In March the Lombard Arduinus summoned the Normans to Melfi in Apulia [witnesses 1 and 2 omit *Normannos*, “the Normans”]. Dulchianus fought the Normans—nearly three thousand—and the Greeks fell [witnesses 2–4 omit *fere tribus milibus*, “nearly three thousand”]. In May the Normans again fought the Greeks on Wednesday [witness 1 reads *Normanni quadringenti*, “four hundred Normans”], and Dulchianus fled to Bari [compare Cedrenus I, p. 546].
 
-1042. Exaugustus descended and fought a battle with the Normans on the third day beginning September, and he was captured there and carried to Melfi. The manuscripts read *Exaugusto*, *Exagusto*, or “Exaugustus the catepan, son of Bugianus. He fought again.” Cedrenus calls the Greek patrician captured in battle Boiannes [II, p. 546]. William of Apulia, book I, and the bishop of Ostia, book II, chapter 67, call him Exaugustus, a surname perhaps imposed because of the circumstances. One witness adds: “and with Atinolfo, their duke, from Benevento, beneath Mount Piloso.”
+1042. Exaugustus descended and fought a battle with the Normans on the third day beginning September, and he was captured there and carried to Melfi [for *Exaugusto*, witnesses 1 and 2 read *ex augto*, witness 3 *exagusto*, and witness 4 *mense aug.*, “in the month of August”; witness 5 reads, “Exaugustus the catepan, son of Bugianus. He fought again.” Cedrenus II, p. 546, calls the captured Greek patrician Boiannes; William of Apulia, book I, and the bishop of Ostia, book II, chapter 67, call him Exaugustus, perhaps a circumstantial surname. After “the Normans,” witness 5 adds, “and Atinolfo, their duke from Benevento, beneath Mount Piloso”].
 
-In December the emperor Michael died, and his nephew, the Caesar Michael, was elevated as emperor [several witnesses omit the intervening words]. In February Argiro of Bari became prince and duke of Italy. In April Maniaki the *magister* descended upon Tarentum [the same man is mentioned under 1038; compare Cedrenus I, pp. 541, 545, 547]. In June he carried away the city of Monopoli, then went to the city of Matera and perpetrated a great slaughter there.
+In December the emperor Michael died, and his nephew, the Caesar Michael, was elevated as emperor [witnesses 1 and 1a omit the clause from “and he was elevated” through “emperor Michael”; witness 2 reads *cesarus* for *caesar*, the title “Caesar”]. In February Argiro of Bari became prince and duke of Italy. In April Maniaki the *magister* descended upon Tarentum [for the name *Maniaki*, witness 2 reads *manniky* and witness 3 *maxiachi*; witnesses 3 and 4 read nominative *magister*, “master,” for *magistro*; witness 1 reads *tarenti*, “of/at Tarentum,” for *Tarentum*. He is the same man mentioned under 1038; compare Cedrenus I, pp. 541, 545, 547]. In June he carried away the city of Monopoli, then went to Matera and perpetrated a great slaughter there.
 
-In September William was chosen count by the people of Matera [the name appears as *Guilelmus*, *Guidelmus*, *Guidelmo*, and *Gulielmus*]. In this year the aforementioned Caesar Michael was deposed from the kingdom, blinded at the command of Zoe and her sister Theodora, and Constantine Monomachus was made emperor. On the third day beginning July, Giovenazzo was captured by the duke Argiro. In August the aforementioned Argiro went to besiege Trani and sat before it for one month [the place is identified in a note as Giovenazzo].
+In September William was chosen count by the people of Matera [for *Guilelmus*, witnesses 1 and 2 read *guidelmus*, witness 1a *guidelmo*, and witness 3 consistently *gulielmus*, all forms of William]. In this year the aforementioned Caesar Michael was deposed from the kingdom and blinded at the command of the sisters Zoe and Theodora, and Constantine Monomachus was made emperor [witness 2 reads *cesarus* for “Caesar”; witness 1 preserves *Michail* as printed; for *Monomachus*, witness 1 reads *monachus*, witness 1a *monacho*, witness 2 *monomacho*, and witness 3 instead adds *et elevatus est C. monomachis in imperium*, “and C. Monomachus was elevated to the empire”]. On the third day beginning July, Giovenazzo [the source form is *Juvenatium*; the editorial note identifies it as Giovenazzo] was captured by the duke Argiro. In August the aforementioned Argiro went to besiege Trani and remained before it for one month.
 
-1043. Bari returned to the hands of the emperor. In September Pardus the patrician came down with much gold; Maniaki had him killed and caused everyone to call him emperor. In October he came to Bari, but it did not receive him at all. In February, however, Theodore Canus the *magister* and catepan came down, and the aforementioned Maniaki proceeded to Durazzo [compare Zonaras XVII.22].
+1043. Bari returned to the emperor’s hands. In September Pardus the patrician came down with much gold; Maniaki had him killed and caused everyone to call Maniaki himself emperor [compare Cedrenus, p. 548; for *Maniaki*, witness 1 repeatedly reads *manachi*. For *seque*, “and himself,” witness 1 reads *sicque*, “and thus,” which removes the explicit reflexive object]. In October he came to Bari, but the city did not receive him. In February Theodore Canus, *magister* and catepan, came down, and the aforementioned Maniaki proceeded to Durazzo [for *Durachium*, witnesses 2 and 4 read *dyrrhachium*, while witness 3 omits the place; compare Zonaras XVII.22].
 
-1044. William, son of Tancred, descended with the prince Guaimarius into Calabria, and they made Stridula into a fortress [the place appears as *Inedula*, *Squillaci*, and *Scridula*; one witness specifies “Tancred of Sicily”].
+1044. William, son of Tancred, descended with Prince Guaimarius into Calabria, and they fortified Stridula [for *Guilelmus*, witnesses 1 and 2 read *guidelmus*, forms of William; after *Tancredi*, witness 3 adds the abbreviated *t. de sicilia d.*, approximately “T[ancred] of Sicily,” with the final *d.* not safely expandable from the note; for *Stridulam*, witness 3 reads *inedulam*, witness 4 *squillaci*, and witness 1a *scridula*, competing place-forms].
 
-1046. The patrician Argiro went to Constantinople, and the catepan Palatinus, also called Eustachius, recalled all the exiles to Bari; he then proceeded to Tarentum. On the eighth day beginning May [some witnesses read “at Trani”], he engaged in battle with the Normans, and the Greeks fell. In this year Conus, king of the Germans, came to Rome because there were three popes there: Sylvester in the church of Saint Peter, Gregory in the Lateran, and Benedict in Tusculum. After expelling them, the aforementioned emperor consecrated Clement; then the emperor came to Benevento. The people of Benevento, to insult him, cut off the straps of his horse [that is, the stirrups]. In this year William died, and his brother Drogo became count.
+1046. The patrician Argiro went to Constantinople, and the catepan Palatinus, also called Eustasius, recalled all the exiles to Bari; he then proceeded to Tarentum [*Palatinus* is the printed name or title, “the Palatine”; for *Eustasius*, witness 1 reads accusative *eustasium* and witness 3 *eustachius*, “Eustachius”]. On the eighth day beginning May, he engaged in battle with the Normans, and the Greeks fell [at *intrante*, “beginning,” witnesses 2 and 4 instead read *in Trano*, “at Trani”]. In this year Conus, king of the Germans, came to Rome because there were three popes there [witness 3 reads *conradus*, “Conrad,” for *Conus*; witness 1 consistently has the shortened form *alman.* for *Alomannorum*, “of the Germans”]: Sylvester in Saint Peter’s, Gregory in the Lateran, and Benedict in Tusculum. After expelling them, the aforementioned emperor consecrated Clement; then the emperor came to Benevento. To insult him, the people of Benevento cut off his horse’s straps—that is, its stirrups [for *strennas*, witness 1 reads *sercunas*, witness 2 *strcuuas*, witness 3 *frenos*, “reins,” witness 4 *strenutas*, and witness 1a *le sercue*]. In this year William died, and his brother Drago became count [for *Guilelmus*, witnesses 1, 2, and 4 read *guidelmus*, forms of William; for *Drago*, witnesses 3 and 1a read *drogo*, “Drogo”].
 
-1047. The town of Stira was captured by the Guarangi in October [the names appear as *Garangi* and *Guaragnis*]. In December they ravaged Lecce, and in June the aforementioned Pope Benedict killed Pope Clement with a cup of poison [the place appears as *Scyra*, *Stita*, and *Liceum*].
+1047. The town of Stira was captured by the Guarangi in October [for *Stira*, witnesses 2 and 4 read *scyra* and witness 3 *stita*; for *Guarangis*, witness 1 reads *garangis* and witness 2 *guaragnis*]. In December they ravaged Lecce [for *Liccem*, witness 3 reads *liticem* and witness 4 *litium*], and in June Pope Benedict killed Pope Clement with a cup of poison.
 
-1050. The empress Zoe died, the sister of Theodora; both had been daughters of the emperor Constantine. Zoe had three husbands: first Romanus, second Michael, and third Constantine Monomachus. She reigned with these three husbands for twenty-two years. After the death of the aforementioned Zoe, the emperor Constantine himself reigned with Theodora, his kinswoman, for nine years already [some witnesses read “the emperor Constantine had already reigned nine years”].
+1050. The empress Zoe died; she and her sister Theodora were daughters of the emperor Constantine. Zoe had three husbands: Romanus, Michael, and Constantine Monomachus [witness 2 reads *romano* for *Romanum*; witnesses 2 and 4 read *michaelem* for *Michail*; witness 1 reads *monachum*, “monk,” for *Monomachum*]. She reigned with them for twenty-two years. After Zoe’s death, Constantine reigned with his kinswoman Theodora, having already reigned nine years [witnesses 2 and 3 instead order the clause *jam nono anno regnavit imperator Constantinus*, “the emperor Constantine had now reigned in the ninth year”].
 
-1051 [one witness has 1052]. Argiro the *magister*, *vestes*, and duke of Italy, son of Melis, descended in March and went to Bari. Adralistus and Romoald, together with his brother Peter, did not receive him. But not long afterward the people of Bari received him without the consent of Adralistus and the others, and Adralistus fled. Romoald and Peter, however, were captured by Argiro, bound in chains, and carried away to Constantinople. In this year Drogo was killed on Mount Ilari by his godfather Concilio, and his brother Umfreda became count [the name appears as *Umfredus*].
+1051 [witness 1 dates the annal 1052]. Argiro, *magister*, *vestes*, and duke of Italy, son of Melis, descended in March and went to Bari [for *magister*, “master,” witness 3 reads *magnus*, “great”; for the title *vesti*, witness 3 has the defective form *vetri*]. Adralistus and Romoald, together with Romoald’s brother Peter, did not receive him [for *Adralistus*, witness 1 records *adrilastrus*, *adrilistus*, and *adrilastus*; witness 3 reads *adralistus magnus (magister)*, “Adralistus the great (or master)”]. Not long afterward, however, the people of Bari received him without the consent of Adralistus and the others, and Adralistus fled. Romoald and Peter were captured by Argiro, bound in chains, and carried away to Constantinople. In this year Drago was killed on Mount Ilari by his godfather Concilio, and his brother Umfreda became count [for *Drago*, witness 3 reads *drogus* and witnesses 2 and 4 *drogo*, forms of Drogo; witness 3 abbreviates *Concilio* as *Con.*, while witness 4 omits the name; witness 4 reads *umfredus* for *Umfreda*, forms of Humphrey].
 
-1053. On Friday in June, the Normans fought with the Germans whom Pope Leo had hired, and they defeated them [one witness reads “whom the pope had brought in”]. In this year there was a great famine.
+1053. On Friday in June, the Normans fought and defeated the Germans whom Pope Leo had hired [at *quos papa Leo*, “whom Pope Leo,” witness 1 has the defective abbreviation *q. prepleo*; its expansion and exact meaning are uncertain]. In this year there was a great famine.
 
-1054. Sico the protospatharius of Matera died [one witness reads “of Mantua”].
+1054. Sico the protospatharius of Matera died [witnesses 1 and 1a read *mantuensis*, “of Mantua,” for *Materiensis*, “of Matera”].
 
-1055. The emperor Constantine, also called Monomachus, died [one witness has *Monachus*].
+1055. The emperor Constantine, also called Monomachus, died [witness 1 reads *monachus*, “monk,” for *Monomachus*].
 
 1056. The aforementioned Theodora Augusta, sister of the empress Zoe, began to reign. Umfreda died, and his brother Robert became duke. In this year Peter, archbishop of Cosenza, died.
 
-1057. The Augusta Theodora died, and Michael Bringas became emperor [one witness has *Brinza*].
+1057. The Augusta Theodora died, and Michael Bringas became emperor [witness 1a reads the name *brinza* for *Bringa*].
 
-1058. The patrician Trombi had Scribones killed in the city of Crotone [witnesses 2 and 4 read *Scribonem*].
+1058. The patrician Trombi had Scribones killed in Crotone [witnesses 2 and 4 read singular accusative *scribonem*, “a/the scribon,” for plural *Scribones*; whether the term is a name or office designation remains uncertain].
 
-[Col. 0136C] 1059. Michael Bringas died, and Isaac Comnenus became emperor [the source has the particle *o*, identified editorially as an article; the name appears as *Comni*, *Komni*, and *Coni*].
+[Col. 0136C] 1059. Michael Bringas died, and Isaac Comnenus became emperor [witness 1a reads *brinza* for *Bringa*; the editor identifies the printed *o* before *Comni* as an article; for *Comni*, witness 2 reads *komni* and witness 3 *coni*, forms of Comnenus].
 
-1060. The emperor Constantine Ducas was elevated [some witnesses omit “emperor”; one has *Ducas*].
+1060. The emperor Constantine Ducas was elevated [witnesses 2 and 4 omit the printed *o*, identified as an article, before *Ducos*; witness 4 reads *ducas* for *Ducos*, forms of the surname Ducas].
 
 1061. The duke Robert captured the city of Acherontia.
-### Canonical apparatus register
-
-This register preserves the printed source forms that the English annalistic translation would otherwise normalize. A numeral adjacent to a witness marker remains a source notation unless the source identifies it as a count.
-
-- **928–929:** retain the alternate personal-name spellings exactly as printed, including the Hychiacon forms, with each treated as a name-form rather than silently regularised. The apparent differences do not license a new identification.
-- **972:** *caytus* is retained as the printed, uncertain title/name; Atto is a distinct reading, not an English gloss of *caytus*. The troop-number notation is reproduced as a manuscript notation, not expanded into a troop count. *persequens* means “pursuing,” while *prosequens* means “following/escorting.”
-- **978:** *Pao* is the source form for the man who became archbishop; 5b reads *Paulus*, “Paul.”
-- **997:** *nearco*, *marco*, *marcus*, and *marcho* are the actual competing forms; *exubitus/excubitus* denotes the excubitor, an imperial guard official.
-- **999:** retain *catapanus*, “catepan/governor,” as the supplied office reading rather than replacing it with an unmarked generic official.
-- **1032:** retain the forms *Hychiacon* and *ketoniti* with their witness scope. The mixed Greek–Latin witness reading is preserved as a source form and glossed only where its wording supplies a meaning; it is not flattened into a generic statement that the manuscripts vary.
-- **1033–1034:** *qui Ropo* is retained as the defective printed form with no invented referent; *cerigo* is retained as the source’s name/place form rather than emended silently.
-- **1038:** the Maniachi-name variants are retained as alternate spellings of the source form; they do not establish separate people.
-- **1042:** the defective phrase after *ad laudem dedit* is rendered “gave [text defective] in praise,” without an invented object or referent.
-- **1043:** retain *Manachi* and *sicque*: *Manachi* is the printed name-form; *sicque* means “and thus.”
-- **1046:** retain *Eustasius* and *Palatinus* as the alternate supplied forms/titles, rather than treating them as interchangeable English names.
-- **1051:** retain each printed personal-name form for Adralistus and Drogo; the orthographic variants are witness readings, not separate people.
-
-The 201 and 204 adjacent to the Dulchianus notice are left as unexplained printed numerals/notations. They are not converted into a troop count. *conteratos/contractos* remains an uncertain source designation; *kritēr* is Greek for “judge,” and κειρισφακτῆρα is preserved as the supplied Greek name-form.
 
 1062. Alexander of Lucania became pope. In this year Robert the duke entered the city of Oria, and again seized Brindisi and the miriarch himself [Note: “the miriarch herself,” 3.].
 
