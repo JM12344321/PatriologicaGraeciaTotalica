@@ -6431,7 +6431,7 @@ so the noble wife of Duke Zuatopluk—
 62. **0199** 2, 2b, 4, 4a read *alia* (“other”).
 63. **0199** Place-name forms: *Wyzplisa* (1,2b), *Wyzpliza* (2), *Wzalsa* (3), *Wzlipsa* (4), *Wzlypsa* (4a).
 64. **0199** A reads *posset* (“could”).
-65. **0199** 1 omits *una* (“one”) in *unanimem esse cum duce Borivoy constantiam Boemorum* (“that the steadfastness of the Bohemians was one with Duke Borivoy”).
+65. **0199** 1 omits *cum* (“with”) in *unanimem esse cum duce Borivoy constantiam Boemorum* (“that the steadfastness of the Bohemians was united with Duke Borivoy”).
 66. **0199** 1 reads *Boryvoy*.
 67. **0199** 1 reads *Zuatoplik*.
 68. **0199** 3 reads *unde* (“whence”).
@@ -6554,7 +6554,7 @@ so the noble wife of Duke Zuatopluk—
 179. **0205** 4/4a *dilaniaverunt* (“tore apart”).
 180. **0205D** Prague Annals agree; see also Boczek I.191.
 181. **0205** 2b/3/4/4a *II Idus* (“second Ides”).
-182. **0205** 3 has *circa* (“concerning/around”) in *circa adjacentes gentes* (“among the neighbouring peoples”).
+182. **0205** 3 reads *ita* (“thus”) for printed *circa* (“around/among”) in *circa adjacentes gentes* (“among the neighbouring peoples”).
 183. **0205** 2b/3 *augurantur* (“they foretell”).
 184. **0205D** *Trapus* is cloth; here it means people of the lowest rank.
 185. **0205D** Foreigners.
@@ -6577,7 +6577,7 @@ so the noble wife of Duke Zuatopluk—
 202. **0205** A corrects *ignarus* (“unaware”) in *haud ignarus* (“not unaware”).
 203. **0205** A bookbinder mistakenly displaced the following folios in 1.
 204. **0205** 1 *aversus* (“turned away”).
-205. **0205** 1 corrects *relevant* (“they relieve”) in another ink; 4 adds *eum* (“him”).
+205. **0205** 1 has *relevant* (“they reinstate”), corrected in another ink, for printed *relevent* (“may reinstate”); 4 adds *eum* (“him”).
 206. **0205** 3 inserts *nomine* (“by name”).
 207. **0206D** Dohna.
 208. **0205** 1 repeats *audiens* (“hearing”).
