@@ -9431,7 +9431,7 @@ Many wise and distinguished men, drawn by love of this gentle archimandrite, gat
 > He made an enduring friendship with upright conduct,  
 > and hatred of vices; steadfast in both, he was.  
 >
-> On the day, grievous all too grievous, which preceded the sixth of April,  
+> On that all-too-grievous day, the sixth before April,  
 > his spirit was restored to its homeland, his bones to the earth.
 
 Adelelm, monk of Flavigny, who lived reverently at Fécamp for a long time and was abundantly versed in a twofold learning, both divine and human doctrine, remained united to the aforesaid father in ardent affection until the end of his life, as may be seen from the subtle writings he produced. He composed, with considerable eloquence, a memorial upon William’s mortuary roll [Col. 0833C] and fitted to that venerable life splendid flowers from Holy Scripture. When these were read, their emotion of honeyed piety drew many tears from readers’ eyes. There, I think, not merely human talent rang out so blessedly; heavenly grace displayed its gifts to well-disposed readers, gloriously adorning its faithful guardian of the bride for the benefit of many and granting that a shining lamp should gleam in this world upon a lampstand. Many who read the title of the roll wept devoutly; marveling at the gift of heavenly dew, they poured out tearful prayers to God for the faithful soul. The aforesaid writer composed three elegiac verses which, in remembrance of the servant of the Almighty, I shall not hesitate to insert here:
