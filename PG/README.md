@@ -1,3 +1,5 @@
 # Patrologia Graeca — English translation
 
-This directory is reserved for the translation of the supplied Patrologia Graeca collection, volumes 1–161. Work on PL is currently prioritized at the user's request. No PG volume is claimed complete.
+Completed volumes are published as one Markdown file per volume, named `PG_NNN_English.md`, after every supplied OCR chunk has been translated and independently source-reviewed. Scan-page labels and marked OCR uncertainty are retained; scan-page labels are not Migne columns.
+
+The work uses only the supplied local OCR corpus. AI translation and independent source review are recorded without claiming human certification.
